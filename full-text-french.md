@@ -4,3 +4,5 @@ _Fig. 1._ - Coupe d'une branche de corail vivant (Seriatopora caliendrum Ehrbg.)
 
 _Fig. 1a._ - Groupement des cristaux en mailles aux bords. Gr. 500.
 
+_Fig. 2._ - Crinoïde Hahnien de la météorite de Vouillé. Gr. 50. On voit le point de départ des colonnettes ramifiées, articulées, rayonnantes, souvent un peu courbées et la zone corticale, présentant un dessin à mailles très fines et serrées. Des grains et esquilles de fer météorique sont dispersés dans la masse.
+
