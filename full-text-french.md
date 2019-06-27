@@ -1,8 +1,8 @@
 ## EXPLICATION DES FIGURES
 
-[Fig. 1 bei b](https://cdn.solaranamnesis.com/HermannKarsten/fig1.jpeg) - Coupe d'une branche de corail vivant (Seriatopora caliendrum Ehrbg.): _a_, Canal longitudinal de la branche principale. - _b_, _c_, _d_, Cellules coupées à différentes hauteurs. - _e_, Canal bourgeonnant. Sur les pointes, on voit les deux dispositions des cristaux, en plumes et en mailles. Gross. 100 diamètres.
+_[Fig. 1.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ - Coupe d'une branche de corail vivant (Seriatopora caliendrum Ehrbg.): _a_, Canal longitudinal de la branche principale. - _b_, _c_, _d_, Cellules coupées à différentes hauteurs. - _e_, Canal bourgeonnant. Sur les pointes, on voit les deux dispositions des cristaux, en plumes et en mailles. Gross. 100 diamètres.
 
-[Fig. 1a.](s3://cdn.solaranamnesis.com/KarlVogt/Fig1.png) - Groupement des cristaux en mailles aux bords. Gr. 500.
+_[Fig. 1a.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ - Groupement des cristaux en mailles aux bords. Gr. 500.
 
 _Fig. 2._ - Crinoïde Hahnien de la météorite de Vouillé. Gr. 50. On voit le point de départ des colonnettes ramifiées, articulées, rayonnantes, souvent un peu courbées et la zone corticale, présentant un dessin à mailles très fines et serrées. Des grains et esquilles de fer météorique sont dispersés dans la masse.
 
