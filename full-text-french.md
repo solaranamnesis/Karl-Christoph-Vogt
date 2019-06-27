@@ -26,20 +26,20 @@ _[Fig. 11. Tab. III.](https://cdn.solaranamnesis.com/KarlVogt/Fig11.png)_ - Chon
 
 _Fig. 12-15._ - Fragments de chondres de Knyahinya, traités par les acides. Gr. 300.
 
-_Fig. 12. Tab. I._ - Cristaux plus gros, sur lesquels sont posés d'autres cristaux plus petits.
+_[Fig. 12. Tab. I.](https://cdn.solaranamnesis.com/KarlVogt/Fig12.png)_ - Cristaux plus gros, sur lesquels sont posés d'autres cristaux plus petits.
 
-_Fig. 13._ - Portion d'un corail Hahnien; disposition colonnaire articulée.
+_[Fig. 13.](https://cdn.solaranamnesis.com/KarlVogt/Fig13.png)_ - Portion d'un corail Hahnien; disposition colonnaire articulée.
 
-_Fig. 14._ - Bras d'un Crinoïde Hahnien; disposition articulée et ramifiée.
+_[Fig. 14.](https://cdn.solaranamnesis.com/KarlVogt/Fig14.png)_ - Bras d'un Crinoïde Hahnien; disposition articulée et ramifiée.
 
-_Fig. 15. Tab. II._ - Disposition colonnaire et parallèle de cristaux rongés et marqués par des incrustations de la matière opaque.
+_[Fig. 15. Tab. II.](https://cdn.solaranamnesis.com/KarlVogt/Fig15.png)_ - Disposition colonnaire et parallèle de cristaux rongés et marqués par des incrustations de la matière opaque.
 
-_Fig. 16._ - Coupe mince de l'enstatite produite par M. Daubrée au moyen de la fusion de la lherzolite avec du fer. Fibres rayonnantes dans des champs circonscrits par des bâtonnets cristallins. Gr. 50.
+_[Fig. 16.](https://cdn.solaranamnesis.com/KarlVogt/Fig16.png)_ - Coupe mince de l'enstatite produite par M. Daubrée au moyen de la fusion de la lherzolite avec du fer. Fibres rayonnantes dans des champs circonscrits par des bâtonnets cristallins. Gr. 50.
 
-_Fig. 17. et 18._ - Deux de ces bâtonnets. Gr. 500. Sur l'un de ces bâtonnets, on voit des figures ressemblant à des mamelons à pores ou à des cicatrices de feuille; sur l'autre, des pièces ressemblant à des crampons.
+_[Fig. 17.](https://cdn.solaranamnesis.com/KarlVogt/Fig17.png) [et 18.](https://cdn.solaranamnesis.com/KarlVogt/Fig18.png)_ - Deux de ces bâtonnets. Gr. 500. Sur l'un de ces bâtonnets, on voit des figures ressemblant à des mamelons à pores ou à des cicatrices de feuille; sur l'autre, des pièces ressemblant à des crampons.
 
-_Fig. 19, 20, 21. Tab. III._ - Groupes de l'enstatite artificielle en givre, produite par M. St. Meunier. Gr. 500. Fig. 19, Articulation latérale des colonnettes. Bras de Crinoïde Hahnien. Fig. 20, Corail Hahnien; cicatrice d'un canal bourgeonnant. Fig. 21, Groupement stellaire.
+_[Fig. 19](https://cdn.solaranamnesis.com/KarlVogt/Fig19.png), [20](https://cdn.solaranamnesis.com/KarlVogt/Fig20.png), [21. Tab. III.](https://cdn.solaranamnesis.com/KarlVogt/Fig21.png)_ - Groupes de l'enstatite artificielle en givre, produite par M. St. Meunier. Gr. 500. Fig. 19, Articulation latérale des colonnettes. Bras de Crinoïde Hahnien. Fig. 20, Corail Hahnien; cicatrice d'un canal bourgeonnant. Fig. 21, Groupement stellaire.
 
-_Fig. 22._ - Fragment d'enstatite tiré d'une coupe mince du «Schillerfels» de Baste dans le Harz. Gr. 300. Disposition colonnaire et articulée rendue visible par le choc du polissage, comme dans le fragment du chondre transparent de Vouillé, Fig. 11.
+_[Fig. 22.](https://cdn.solaranamnesis.com/KarlVogt/Fig22.png)_ - Fragment d'enstatite tiré d'une coupe mince du «Schillerfels» de Baste dans le Harz. Gr. 300. Disposition colonnaire et articulée rendue visible par le choc du polissage, comme dans le fragment du chondre transparent de Vouillé, Fig. 11.
 
-_Fig. 23._ - Groupe de cristaux dans une coupe de la météorite de Knyahinya ressemblant au produit artificiel de la fusion de la lherzolite avec le fer doux. Gr. 50.
+_[Fig. 23.](https://cdn.solaranamnesis.com/KarlVogt/Fig23.png)_ - Groupe de cristaux dans une coupe de la météorite de Knyahinya ressemblant au produit artificiel de la fusion de la lherzolite avec le fer doux. Gr. 50.
