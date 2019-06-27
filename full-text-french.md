@@ -36,3 +36,10 @@ _Fig. 15. Tab. II._ - Disposition colonnaire et parallèle de cristaux rongés e
 
 _Fig. 16._ - Coupe mince de l'enstatite produite par M. Daubrée au moyen de la fusion de la lherzolite avec du fer. Fibres rayonnantes dans des champs circonscrits par des bâtonnets cristallins. Gr. 50.
 
+_Fig. 17. et 18._ - Deux de ces bâtonnets. Gr. 500. Sur l'un de ces bâtonnets, on voit des figures ressemblant à des mamelons à pores ou à des cicatrices de feuille; sur l'autre, des pièces ressemblant à des crampons.
+
+_Fig. 19, 20, 21. Tab. III._ - Groupes de l'enstatite artificielle en givre, produite par M. St. Meunier. Gr. 500. Fig. 19, Articulation latérale des colonnettes. Bras de Crinoïde Hahnien. Fig. 20, Corail Hahnien; cicatrice d'un canal bourgeonnant. Fig. 21, Groupement stellaire.
+
+_Fig. 22._ - Fragment d'enstatite tiré d'une coupe mince du «Schillerfels» de Baste dans le Harz. Gr. 300. Disposition colonnaire et articulée rendue visible par le choc du polissage, comme dans le fragment du chondre transparent de Vouillé, Fig. 11.
+
+_Fig. 23._ - Groupe de cristaux dans une coupe de la météorite de Knyahinya ressemblant au produit artificiel de la fusion de la lherzolite avec le fer doux. Gr. 50.
