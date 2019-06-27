@@ -18,3 +18,21 @@ _Fig. 7._ - Cristal disloqué de Knyahinya. Gr. 300. La matière incrustante pé
 
 _Fig. 8. Tab. II._ - Groupe de gros cristaux dans une coupe mince de la météorite de Vouillé. Gr. 180. On y voit quelques gros amas de fer météorique. La matière incrustante opaque remplit tous les interstices.
 
+_Fig. 9. Tab. II._ - Coupe très mince de l'enstatite artificielle produite par M. Daubrée par la fusion du péridot avec du fer. On y voit une grande lacune presque circulaire obtusement anguleuse, laissée par un cristal enlevé. Le fer remplit les interstices. Gr. 180.
+
+_Fig. 10. Tab. II._ - Coupe plus épaisse de la même enstatite artificielle. Gr. 180.
+
+_Fig. 11. Tab. III._ - Chondre transparent de la météorite de Vouillé, montrant une structure finement striée. Un morceau disloqué _c_ laisse voir la structure colonnaire. - _a_, Remplissage tubiforme d'une cassure, isolé. Gr. 100. - _b_, Extrémité du tube formé par la matière incrustante, montrant la lumière du canal. Gr. 500.
+
+_Fig. 12-15._ - Fragments de chondres de Knyahinya, traités par les acides. Gr. 300.
+
+_Fig. 12. Tab. I._ - Cristaux plus gros, sur lesquels sont posés d'autres cristaux plus petits.
+
+_Fig. 13._ - Portion d'un corail Hahnien; disposition colonnaire articulée.
+
+_Fig. 14._ - Bras d'un Crinoïde Hahnien; disposition articulée et ramifiée.
+
+_Fig. 15. Tab. II._ - Disposition colonnaire et parallèle de cristaux rongés et marqués par des incrustations de la matière opaque.
+
+_Fig. 16._ - Coupe mince de l'enstatite produite par M. Daubrée au moyen de la fusion de la lherzolite avec du fer. Fibres rayonnantes dans des champs circonscrits par des bâtonnets cristallins. Gr. 50.
+
