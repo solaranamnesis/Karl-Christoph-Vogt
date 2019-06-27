@@ -8,4 +8,5 @@ _Fig. 2._ - Crinoïde Hahnien de la météorite de Vouillé. Gr. 50. On voit le 
 
 _Fig. 3._ - Pentacrinus europaeus. Gr. 50. Pour montrer la structure réticulée propre à toutes les pièces du squelette, composant la tige, le calice et les bras naissants.
 
-_Fig. 4._ - 
+_Fig. 4._ - Cristaux simulant des filaments d'algues dans une diorite de la rivière de Leith, près d'Edimbourg. Gr. 180. Ces cristaux sont des prismes hexaèdres; l'ombre des côtes produit dans quelques-uns des traits longitudinaux simulant des canaux. Dans d'autres, on voit des véritables canaux médians avec libelle d'air ou des bulles vides rangées suivant l'axe.
+
