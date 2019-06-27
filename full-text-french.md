@@ -6,3 +6,6 @@ _Fig. 1a._ - Groupement des cristaux en mailles aux bords. Gr. 500.
 
 _Fig. 2._ - Crinoïde Hahnien de la météorite de Vouillé. Gr. 50. On voit le point de départ des colonnettes ramifiées, articulées, rayonnantes, souvent un peu courbées et la zone corticale, présentant un dessin à mailles très fines et serrées. Des grains et esquilles de fer météorique sont dispersés dans la masse.
 
+_Fig. 3._ - Pentacrinus europaeus. Gr. 50. Pour montrer la structure réticulée propre à toutes les pièces du squelette, composant la tige, le calice et les bras naissants.
+
+_Fig. 4._ - 
