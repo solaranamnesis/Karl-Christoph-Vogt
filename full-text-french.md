@@ -48,7 +48,8 @@ M. Hahn croit donc avoir fourni «la preuve incontestable que les chondrites son
 
 Il va sans dire que la réponse est affirmative.
 
-De toutes ces conditions posées par M. Hahn, il n'y en a évidemment que deux qui puissent trancher la question sous certains points de vue; les autres sont également applicables aux minéraux.
+De toutes ces conditions posées par M. Hahn, il n'y en a évidemment que deux qui puissent trancher la question sous certains points de vue; les autres sont également applicables aux minéraux. Les cristaux ont des formes déterminées, qui se répètent toujours et encore bien mieux que les formes organiques, dans les diverses phases développement. Jusqu'à présent nous étions plutôt persuadé que c'était un privilège du grand nombre des types organiques, de changer de forme pendant les différentes phases de leur développement; qu'abstraction faite des œufs, des germes et des semences, les formes larvaires, par exemple, étaient souvent fort différentes de celles des animaux définitifs, que les cotylédons des plantes ne ressemblaient souvent, en aucune manière, aux feuilles définitives, tandis que les formes de cristaux étaient éminemment stables. M. Hahn soutient que nous étions dans l'erreur. Soit, - mais, en tout cas, les trois premières conditions qu'il pose ne disent absolument rien pour la distinction entre formes organiques et inorganiques.
+
 
 ...
 
