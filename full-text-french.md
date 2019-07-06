@@ -24,7 +24,11 @@ Je résume, en traduisant littéralement les paroles de l'auteur, les principaux
 
 M. Hahn croit donc avoir fourni «la preuve incontestable que les chondrites sont des restes d'animaux ayant vécu dans l'eau, que la météorite entière n'est formée que de restes de spongiaries, de coraux et de crinoïdes, métamorphosés, par pétrification, en enstatite. Il est vrai, dit-il, qu'il y a des petites places rares, où se trouvent des véritables cristaux, mais ces cristaux sont disposés de manière que cela ne peut avoir de l'influence sur la valeur de mes preuves réelles.» (P. 21.)
 
+«Si j'ai dit, continue-t-il, que les chondrites ne sont qu'un tissu d'animaux, un feutre animal, cela souffre cependant une exception.»
 
+«On trouve, en effet, dans cette roche à squelettes d'animaux des petites places à contours arrêtés, qui ont été probablement (mais pas nécessairement) roche dès le commencement. Ce sont des rares inclusions gris-bleues de 3 à 5 millimètres de diamètre _sans forme déterminée et répétée_, qui contiennent dans leur masse grise des cristaux évidents d'un minéral jaune-verdâtre, dont les coupes présentent tantôt des carrés ou des rhombes, tantôt des pentagones. Ce minéral peut être de l'augite ou de l'olivine. Mais cela ne renverse pas le fait, _que des conformations organiques existent dans les couches à olivine et que ces conformations ont engendré la construction des corps planétaires, qu'elles ont composés et construits.»
+
+...
 
 ## EXPLICATION DES FIGURES
 
