@@ -54,7 +54,11 @@ La structure que M. Hahn invoque comme quatrième condition est sans doute prép
 
 Il ne reste donc, des cinq conditions posées par M. Hahn, que la dernière, la similitude avec des formes connues. Mais ici encore les incertitudes les plus grandes peuvent prendre place. Sont-ce les formes extérieures? Sont-ce les détails de structure des formes? Nous citerons, dans un autre mémoire, une foule de cas, où des conformations éminemment minérales, produites artificiellement ou par la nature, miment d'une manière parfaite les formes organiques et nous avons, d'un autre côté, dans les coraux, dans les cristaux intracellulaires des plantes, dans les otolithes des animaux, une quantité d'exemples de formes minérales, produites par les organismes.
 
-_Il faut donc s'adresser aux formes et structures spéciales comparées._ Il faut pousser
+_Il faut donc s'adresser aux formes et structures spéciales comparées._ Il faut pousser la comparaison jusque dans les détails les plus minimes en apparence, lorsqu'on veut nous prouver que tel objet, que nous avons sous les yeux, est une éponge, un corail ou un crinoïde. Nous laissons donc pour le moment de côté les preuves dites négatives, par lesquelles l'auteur veut nous démontrer que les objets figurés par lui ne peuvent être des formes minérales, - elles sont à peu près de la même valeur que ses preuves positives. Nous nous adressons aux formes spéciales, qui par la ressemblance avec les formes connues et par leur structure identique doivent fournir la preuve incontestable que les chondrites sont formées par des organismes parents de ceux de la terre.
+
+Nous passons successivement en revue ces prétendus organismes, en énumérant, avec les termes mêmes de l'ouvrage, les caractères que l'auteur attribue aux différents organismes qu'il croit avoir reconnus.
+
+
 
 ...
 
