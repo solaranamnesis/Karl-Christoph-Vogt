@@ -38,9 +38,17 @@ M. Hahn croit donc avoir fourni «la preuve incontestable que les chondrites son
 
 «2° Une forme _qui se répète_;
 
-3° Qui se répète dans les degrés du développement;
+«3° Qui se répète dans les degrés du développement;
 
+«4° Structure, savoir: cellules ou vaisseaux;
 
+«5° Ressemblance avec des formes connues.
+
+«Lorsque ces conditions sont remplies, il ne s'agit plus que de déterminer, si l'objet est une plante ou un animal? Mes formes remplissent-elles ces conditions.» (P. 20.)
+
+Il va sans dire que la réponse est affirmative.
+
+De toutes ces conditions posées par M. Hahn, il n'y en a évidemment que deux qui puissent trancher la question sous certains points de vue; les autres sont également applicables aux minéraux.
 
 ...
 
