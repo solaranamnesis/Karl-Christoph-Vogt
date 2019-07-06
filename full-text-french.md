@@ -18,6 +18,8 @@ Je résume, en traduisant littéralement les paroles de l'auteur, les principaux
 
 «Qu'on regarde les planches de mon ouvrage et l'on aura immédiatement la certitude qu'il ne s'agit pas de formes minérales, mais de formes organiques; que nous devant nous des figures d'animaux du type le plus inférieur, appartenant à une création, qui pour la plus grande partie, trouvent leurs parents les plus proches sur notre terre; - quant aux crinoïde et aux coraux, c'est établi avec la certitude la plus absolue; les spongiaires montrent au moins une telle ressemblance avec les formes de notre terre, comme elle existe entre des genres terrestres rapprochés.» (P. 7.)
 
+«Le lecteur qui regardera seulement d'une manière superficielle mes formes trouvera bientôt qu'elles fournissent une véritable histoire de développement. Toutes les transitions de l'éponge au corail, du corail au crinoïde sont là, de manière que l'on peut réellement être dans le doute, où l'on veut placer ces transitions, à moins d'en faire des genres nouveaux.» (P. 3.)
+
 
 
 ## EXPLICATION DES FIGURES
