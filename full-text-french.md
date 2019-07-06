@@ -58,6 +58,12 @@ _Il faut donc s'adresser aux formes et structures spéciales comparées._ Il fau
 
 Nous passons successivement en revue ces prétendus organismes, en énumérant, avec les termes mêmes de l'ouvrage, les caractères que l'auteur attribue aux différents organismes qu'il croit avoir reconnus.
 
+«A. - _Spongiaires_»
+
+«1° Urania.»
+
+«Corps en lobe arrondi avec point de fixation visible.» - «Plis causés par la contraction.» - «Contourné en spirale.» - «La structure consiste en une membrane externe, posée sur des couches lamellaires.» - «Couleur bleue.» - «Stratification évidente. On serait tenté de mettre l'exemplaire figuré parmi les coraux, s'il n'y avait la forme.» - «On croit voir l'indication d'un orifice buccal.»
+
 
 
 ...
