@@ -26,7 +26,7 @@ M. Hahn croit donc avoir fourni «la preuve incontestable que les chondrites son
 
 «Si j'ai dit, continue-t-il, que les chondrites ne sont qu'un tissu d'animaux, un feutre animal, cela souffre cependant une exception.»
 
-«On trouve, en effet, dans cette roche à squelettes d'animaux des petites places à contours arrêtés, qui ont été probablement (mais pas nécessairement) roche dès le commencement. Ce sont des rares inclusions gris-bleues de 3 à 5 millimètres de diamètre _sans forme déterminée et répétée_, qui contiennent dans leur masse grise des cristaux évidents d'un minéral jaune-verdâtre, dont les coupes présentent tantôt des carrés ou des rhombes, tantôt des pentagones. Ce minéral peut être de l'augite ou de l'olivine. Mais cela ne renverse pas le fait, _que des conformations organiques existent dans les couches à olivine et que ces conformations ont engendré la construction des corps planétaires, qu'elles ont composés et construits.»
+«On trouve, en effet, dans cette roche à squelettes d'animaux des petites places à contours arrêtés, qui ont été probablement (mais pas nécessairement) roche dès le commencement. Ce sont des rares inclusions gris-bleues de 3 à 5 millimètres de diamètre _sans forme déterminée et répétée_, qui contiennent dans leur masse grise des cristaux évidents d'un minéral jaune-verdâtre, dont les coupes présentent tantôt des carrés ou des rhombes, tantôt des pentagones. Ce minéral peut être de l'augite ou de l'olivine. Mais cela ne renverse pas le fait, _que des conformations organiques existent dans les couches à olivine et que ces conformations ont engendré la construction des corps planétaires, qu'elles ont composés et construits._»
 
 ...
 
