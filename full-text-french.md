@@ -64,7 +64,11 @@ Nous passons successivement en revue ces prétendus organismes, en énumérant, 
 
 «Corps en lobe arrondi avec point de fixation visible.» - «Plis causés par la contraction.» - «Contourné en spirale.» - «La structure consiste en une membrane externe, posée sur des couches lamellaires.» - «Couleur bleue.» - «Stratification évidente. On serait tenté de mettre l'exemplaire figuré parmi les coraux, s'il n'y avait la forme.» - «On croit voir l'indication d'un orifice buccal.»
 
+«D'après ce qui vient d'être dit, je considère l'Urania comme une éponge fixée, qui se contracte en spirale, aspire et expulse l'eau comme nos éponges actuelles.» (P. 23 et 24.)
 
+Tels sont les détails de structure, qui doivent nous convertir à l'opinion de M. Hahn. Les Urania occupent, suivant lui, trois vingtièmes de la masse totale des météorites pierreuses; elles sont figurées sur six planches comprenant trente et une figures.
+
+Dans un 
 
 ...
 
