@@ -28,6 +28,20 @@ M. Hahn croit donc avoir fourni «la preuve incontestable que les chondrites son
 
 «On trouve, en effet, dans cette roche à squelettes d'animaux des petites places à contours arrêtés, qui ont été probablement (mais pas nécessairement) roche dès le commencement. Ce sont des rares inclusions gris-bleues de 3 à 5 millimètres de diamètre _sans forme déterminée et répétée_, qui contiennent dans leur masse grise des cristaux évidents d'un minéral jaune-verdâtre, dont les coupes présentent tantôt des carrés ou des rhombes, tantôt des pentagones. Ce minéral peut être de l'augite ou de l'olivine. Mais cela ne renverse pas le fait, _que des conformations organiques existent dans les couches à olivine et que ces conformations ont engendré la construction des corps planétaires, qu'elles ont composés et construits._»
 
+«Dans tous les cas, il y a inversion des rapports dans la roche chondritique vis-à-vis des couches sédimentaires de notre terre. Dans ces dernières, les organismes sont enfouis dans la masse rocheuse qui les entoure; dans les premières, il n'y a que des organismes et la roche en est une collection.» (P. 35.)
+
+«Ces formes ne sont pas des formes minérales,» dit M. Hahn avec une certitude absolue. Mais sachant bien que des assertions semblables ne sont guère acceptées par le monde scientifique, sans preuves palpables, il cherche à les donner, en les groupant sous deux catégories, dites preuves positives et preuves négatives.
+
+«Pour fournir la preuve positive, qu'il s'agit d'un organisme végétal ou animal, je crois nécessaire de démontrer:
+
+1° Une forme _déterminée_.» (Je ne sais autrement traduire le terme employé plusieurs fois par M. Hahn «geschlossene Form»; la traduction littérale «forme fermée» n'ayant aucun sens).
+
+«2° Une forme _qui se répète_;
+
+3° Qui se répète dans les degrés du développement;
+
+
+
 ...
 
 ## EXPLICATION DES FIGURES
