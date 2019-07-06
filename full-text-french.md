@@ -1,4 +1,20 @@
+# LES PRÉTENDUS 0RGANISMES DES MÉTÉORITES
+
+# PAR CARL VOGT
+
+## PRÉSIDENT DE L'INSTITUT NATIONAL GENEVOIS
+
+### GENÈVE
+
+### IMPRIMERIE CENTRALE GENEVOISE, RUE DU RHONE, 52
+
+### 1882
+
 ## EXPLICATION DES FIGURES
+
+Vers la fin de 1880 parut en Allemagne un ouvrage in-4°, qui ne pouvait manquer d'éveiller l'attention. Il était intitulé: Les Météorites (Chondrites) et leurs organismes, figurées et décrites par Otto Hahn, Docteur. Trente-deux planches avec cent-quarante-deux figures photographiées. Tubingue, 1880. Laupp, éditeur.
+
+
 
 _[Fig. 1.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ - Coupe d'une branche de corail vivant (Seriatopora caliendrum Ehrbg.): _a_, Canal longitudinal de la branche principale. - _b_, _c_, _d_, Cellules coupées à différentes hauteurs. - _e_, Canal bourgeonnant. Sur les pointes, on voit les deux dispositions des cristaux, en plumes et en mailles. Gross. 100 diamètres.
 
