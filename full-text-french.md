@@ -20,6 +20,10 @@ Je résume, en traduisant littéralement les paroles de l'auteur, les principaux
 
 «Le lecteur qui regardera seulement d'une manière superficielle mes formes trouvera bientôt qu'elles fournissent une véritable histoire de développement. Toutes les transitions de l'éponge au corail, du corail au crinoïde sont là, de manière que l'on peut réellement être dans le doute, où l'on veut placer ces transitions, à moins d'en faire des genres nouveaux.» (P. 3.)
 
+«Sauf le seul travail de Gümbel dans le Bulletin de l'Académie de Munich, toutes les autres recherches faites jusqu'ici dans ce domaine ne peuvent être considérées comme des constatations scientifiques, autant par rapport à l'exactitude des observations, que par rapport aux conclusions basées sur ces observations, aux hypothèses non prouvées et aux _a priori_ entièrement vides.» (P. 7.)
+
+M. Hahn croit donc avoir fourni «la preuve incontestable que les chondrites sont des restes d'animaux ayant vécu dans l'eau, que la météorite entière n'est formée que de restes de spongiaries, de coraux et de crinoïdes, métamorphosés, par pétrification, en enstatite. Il est vrai, dit-il, qu'il y a des petites places rares, où se trouvent des véritables cristaux, mais ces cristaux sont disposés de manière que cela ne peut avoir de l'influence sur la valeur de mes preuves réelles.» (P. 21.)
+
 
 
 ## EXPLICATION DES FIGURES
