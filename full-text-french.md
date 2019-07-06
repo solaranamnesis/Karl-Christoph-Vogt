@@ -68,7 +68,11 @@ Nous passons successivement en revue ces prétendus organismes, en énumérant, 
 
 Tels sont les détails de structure, qui doivent nous convertir à l'opinion de M. Hahn. Les Urania occupent, suivant lui, trois vingtièmes de la masse totale des météorites pierreuses; elles sont figurées sur six planches comprenant trente et une figures.
 
-Dans un 
+Dans un ouvrage précédent du même auteur «Die Urzelle», l'Urania Guilielmi, dédiée à l'empereur Guillaume, était représentée comme un végétal à feuilles arrondies, enroulées dans leur jeune âge, muni de capsules portant des spores. En passant dans l'ouvrage actuel, l'Urania a perdu ces capsules avec leurs spores; elle est devenue une éponge. Il est vrai que nous n'apprenons point pourquoi ce changement de place si considérable a été opéré; l'auteur ne dit pas un traître mot sur les raisons qui l'ont engagé à changer d'opinion. Quels sont les caractères que ce prétendu organisme a perdus ou gagnés pour être transporté d'un règne à l'autre? Question inopportune à laquelle l'auteur ne répond pas.
+
+«2° Eponges à spicules.» (Table VII.)
+
+
 
 ...
 
