@@ -52,6 +52,9 @@ De toutes ces conditions posées par M. Hahn, il n'y en a évidemment que deux q
 
 La structure que M. Hahn invoque comme quatrième condition est sans doute prépondérante, à condition toutefois qu'elle persiste dans les parties animales ou végétales soumises à la pétrification. M. Hahn pose comme condition de cette structure la présence de cellules ou de vaisseaux. C'est fort bien, - mais je voudrais savoir, quelles cellules et quels vaisseaux pourraient rester, lorsqu'une éponge subit la fossilisation? On sait que les tissus de ces animaux sont composés de cellules éminemment délicates, qui diffluent avec la plus grande facilité, que tout ce qu'on peut retrouver dans une éponge pétrifiée consiste en spicules minéraux, calcaires ou siliceux, dans lesquels on ne peut voir ni cellules ni vaisseaux! Et si la présence de cellules ou de vaisseaux est un caractère indispensable, que deviennent les couraux fossiles, où l'on ne voit absolument que des cristaux entourant des lacunes?
 
+Il ne reste donc, des cinq conditions posées par M. Hahn, que la dernière, la similitude avec des formes connues. Mais ici encore les incertitudes les plus grandes peuvent prendre place. Sont-ce les formes extérieures? Sont-ce les détails de structure des formes? Nous citerons, dans un autre mémoire, une foule de cas, où des conformations éminemment minérales, produites artificiellement ou par la nature, miment d'une manière parfaite les formes organiques et nous avons, d'un autre côté, dans les coraux, dans les cristaux intracellulaires des plantes, dans les otolithes des animaux, une quantité d'exemples de formes minérales, produites par les organismes.
+
+_Il faut donc s'adresser aux formes et structures spéciales comparées._ Il faut pousser
 
 ...
 
