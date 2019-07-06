@@ -72,6 +72,10 @@ Dans un ouvrage précédent du même auteur «Die Urzelle», l'Urania Guilielmi,
 
 «2° Eponges à spicules.» (Table VII.)
 
+«Je place la fig. 1 parmi les Astrospongia. Les spicules sont régulièrement croisés. Fig. _b_ est une charpente spiculaire irrégulière avec une cavité faiblement indiquée.» (P. 24.)
+
+Les prétendus spicules ressemblent, à s'y méprendre, à des cristaux linéaires dispersés dans une masse homogène, tels qu'on les voit dans la première lave venue. On voit en quelques endroits une tendance peu marquée vers un arrangement stellaire, très commun chez les cristaux, in solite chez les spicules des éponges, dont les formes connues sont tout à fait différentes (1).
+
 
 
 ...
