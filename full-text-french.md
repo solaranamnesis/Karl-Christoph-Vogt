@@ -94,7 +94,7 @@ Dans d'autres: «Coraux tubulaires évidents. On distingue clairement dans l'ori
 
 Les coraux constituent, suivant l'auteur, un vingtième de la masse totale.
 
-
+En étudiant attentivement les trente figures des prétendus coraux distribuées sur neuf planches, on peut se convaincre d'abord, que toutes les figures réprésentant des échantillons entiers, montrent absolument la même forme générale que les Uranias, - forme arrondie à contours nettement accusés, semblable à celle d'une feuille ronde ou ovalaire entière. La seule différence qui existe entre les prétendues éponges et les prétendus coraux est dans l'apparence des stries divergeantes qui partent d'un point de départ excentriquement rapproché de bord et qui paraissent plus épaisses et mieux accusées dans les coraux. C'est comme on voit, la forme générales des chondres, - la plupart des figures ne nous donnent absolument rien de plus que ce que nous ont fait connaitre depuis longtemps les auteurs qui se sont occupés des météorites. Nous trouvons, il est vrai, quelques rares figures montrant des stries rayonnantes depuis plusieurs points de départ. M. Gümbel déjà mentionné cette disposition exceptionnelle que j'ai constatée aussi sur plusieurs de mes coupes; nous en voyons une autre, désignée sous le nom de «corail en chaîne» (Kettenkoralle), où sur un espace arrondi clair se présentent quelques taches obscures à contours lavés et disposés irrégulièrement. Cette figure ressemble autant et plus peut-être à une peau tachetée d'un chat quelconque qu'à un corail. Mais l'auteur veut que cela soit un corail; que ta volonté soit faite, seigneur!
 
 ...
 
