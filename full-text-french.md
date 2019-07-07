@@ -82,6 +82,12 @@ Conclusions: les prétendus spongiaires des météorites n'ont ni la forme, ni l
 
 #### «B. - _Les Coraux_»
 
+«Ici, nous avons des formes terrestres si bien conservées, qu'il ne peut rester aucun doute.»
+
+«Tab. VIII montre une forme modèle; Tab. IX fait voir la structure canaliculaire; canaux bourgeonnants manifestes qui relient entre eux les tubes (car ce sont des tubes). Il s'y ajoute la courbure des canaux qu'on ne peut absolument pas confondre avec des cassures lamellaires, les orifices manifestes des tubes et le point de fixation évident... Les canaux bourgeonnants sont distants de 0,003 mm. Certainement tout ce que l'on peut demander pour la structure d'un Favosites.»
+
+«Tab. XI. Ici, chaque observateur reconnaîtra facilement l'image de formes vivantes de coraux, d'autant plus que figure 1 indique la forme en calice (cavité).
+
 
 ...
 
