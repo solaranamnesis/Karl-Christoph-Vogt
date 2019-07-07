@@ -102,7 +102,7 @@ S'il est déjà étonnant que parmi ces nombreuses figures, comparées tantôt �
 
 «La structure microscopique des squelettes des Madréporaires, dit M. Zittel (Palaeontologie, p. 206), est très uniformément fibro-cristalline. Les fibres minimes qui rayonnent en partant de centres de cristallisation, forment des dessins étoilés ou semblables à des plumes.»
 
-
+Le squelette du polypier d'un Anthozoaire montre en effet toujours une structure microscopique qui, dans la plupart des cas, est franchement cristalline. Un tube, une branche de corail n'est pas simplement un morceau de calcaire solide, percé dans son axe par un canal central arrondi ou divisé par des cloisons, comme nous le présente M. Hahn; cette branche est toujours composée d'une multitude de petites pièces cristallines, assemblées dans un ordre déterminé. Sur les coupes transversales des canaux ou des cellules des Favosites et des Tubipores, on voit les têtes de ces pièces avancer vers l'intérieur; sur les coupes longitudinales, elles paraissent diposées comme les barbillons d'une plume.
 
 ...
 
