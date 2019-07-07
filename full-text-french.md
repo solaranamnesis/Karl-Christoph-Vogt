@@ -86,7 +86,14 @@ Conclusions: les prétendus spongiaires des météorites n'ont ni la forme, ni l
 
 «Tab. VIII montre une forme modèle; Tab. IX fait voir la structure canaliculaire; canaux bourgeonnants manifestes qui relient entre eux les tubes (car ce sont des tubes). Il s'y ajoute la courbure des canaux qu'on ne peut absolument pas confondre avec des cassures lamellaires, les orifices manifestes des tubes et le point de fixation évident... Les canaux bourgeonnants sont distants de 0,003 mm. Certainement tout ce que l'on peut demander pour la structure d'un Favosites.»
 
-«Tab. XI. Ici, chaque observateur reconnaîtra facilement l'image de formes vivantes de coraux, d'autant plus que figure 1 indique la forme en calice (cavité).
+«Tab. XI. Ici, chaque observateur reconnaîtra facilement l'image de formes vivantes de coraux, d'autant plus que figure 1 indique la forme en calice (cavité). Le même objet montre des cloisons manifestes dans les tubes.» (Malheureusement, je ne réussis pas de voir dans cette figure ni indice d'une cavité, ni tubes, ni cloisons transverses.)
+
+Dans d'autres figures: «Structure lamellaire évidente.»
+
+Dans d'autres: «Coraux tubulaires évidents. On distingue clairement dans l'original: Matière intersticielle vitreuse, paroi tubulaire noire, matière jaune remplissant les tubes, qui aussi quelquefois devient noire. Cette forme revient à cent reprises et dans toutes les chondrites.» (P. 25 et 26.)
+
+Les coraux constituent, suivant l'auteur, un vingtième de la masse totale.
+
 
 
 ...
