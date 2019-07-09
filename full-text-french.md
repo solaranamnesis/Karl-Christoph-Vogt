@@ -108,7 +108,9 @@ Or, cette structure si caractéristique à éléments cristallins de forme vari�
 
 Il n'y a donc aucune similitude entre les prétendus coraux de M. Hahn et les véritables coraux, tels que nous les connaissons dans les différentes créations depuis les couches les plus anciennes de la terre. Il n'y a pas même de similitude quant aux formes extérieures, car les cellules tubiformes des Favositides sont distinctement polygonales et percées de trous sur leurs parois, et le polypier en entier est ou grossièrement branchu ou bien disposé en masse épaisse.
 
+Nous arrivons à la dernière classe, représentée, suivant M. Hahn, dans les chondres des météorites et qui en forme, suivant cet auteur, à elle seule les seize vingtièmes de la masse totale. C'est la classe ou même, si l'on veut, l'embranchement des Échinodermes, représenté par les crinoïdes. Étudié de préférence par notre auteur, ce type n'a pas fourni moins de soixante-six figures. Ici, nous trouverons sans doute une plus ample moisson de faits et d'observations. La structure des crinoïdes est compliquée; leurs formes sont très variées; l'étude offre beaucoup de difficultés, sur lesquelles peut s'exercer la sagacité de l'observateur. Vu cette multitude d'exemplaires trouvés dans la seule météorite de Knyahinya, le fond de la mer planétaire, dont proviennent les aérolithes, doit avoir ressemblé aux forêts sous-marines à crinoïdes, que nous ont fait connaître les dragages des expéditions modernes.
 
+#### «C. - _Les Crinoïdes._»
 
 
 
