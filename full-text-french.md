@@ -112,6 +112,14 @@ Nous arrivons à la dernière classe, représentée, suivant M. Hahn, dans les c
 
 #### «C. - _Les Crinoïdes._»
 
+«Se trouvent depuis la forme la plus simple d'un bras articulé jusqu'aux crinoïdes complets avec tige (nous avons vainement cherché une tige sur les figures), avec calice, bras principaux et auxiliaires. La conservation est ordinairement bonne. La difficulté gît dans les mille directions des coupes qui donnent toujours des images différentes du même objet. Les corps oviformes, que l'on considérait comme des verres, sont des calices de crinoïdes.» - «Bras brisés par pression d'en haut.» - «Crinoïdes avec autant de bras qu'il vous plaira» (Mit einer beliebigen Anzahl von Armen). - «Crinoïde à cinq bras.» - «Structure réticulée sur quelques formes, qui s'accorde avec la structure de la Schreibersite dans les fers météoriques.» - «Différentes formes douteuses; on ne sait si ce sont des éponges, des Urania ou des coraux.» - «Rappelle le genre Comatula.»
+
+Je crois n'avoir rien omis de ce qui se rapporte aux observations sur les formes et les structures. Le reste doit se deviner sur les figures.
+
+On conviendra que c'est bien maigre. Quelques assertions sans preuve aucune.
+
+Comme je l'ai déjà fait pressentir à propos des éponges et des coraux, l'auteur ne présente aucune comparaison, même superficielle, avec la structure d'autres organismes vivants ou fossiles appartenant à la même classe. M. Hahn se contente de la ressemblance la plus grossière. Les objets qu'il figure ressemblent en effet à des crinoïdes comme une feuille de Sabal ou de Chamaerops ressemble à un éventail. Cela suffit.
+
 
 
 ...
