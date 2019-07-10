@@ -132,6 +132,10 @@ La structure microscopique des pièces calcaires du squelette des Echinodermes e
 
 Je donne comme exemple de cette structure la figure dessinée d'après nature et sous un faible grossissement, du Pentacrinus europaeus (fig. 3), de la larve si connue de la comatule. On voit cette structure réticulée à mailles sur la tige, composée de cylindres articulés, sur les plaques principales et axillaires du calice, sur les bras encore peu développés. Je n'ai, du reste, qu'à rappeler les descriptions et les figures données par M. Carpenter (Embryogénie de l'Antedon) (Comatula) et celles déjà anciennes de M. Valentin (Monographies des Echinodermes vivants et fossiles par Agassiz. Neuchâtel 1838-45. Echinus). M. Zittel résume cette structure très bien dans sa Paléontologie (Vol. I, p. 311-315). Cet auteur dit, en parlant des crinoïdes fossiles (p. 324): «Ils montrent presque toujours une conformation essentiellement cristalline, due à l'infiltration de spath calcaire, mais que détruit rarement la structure microscopique réticulée d'une manière complète. Celle-ci perd, en revanche, lorsque le calcaire est remplacé par de la silice.»
 
+Or, rien, absolument rien de cette structure ne se voit dans les figures de M. Hahn. Ce qui lui plaît de désigner sous le titre de «structure réticulée» (Tab. XXX, fig. 6; Tab. XXI, fig. 5) ne ressemble en aucune manière à la structure à mailles des pièces des Echinodermes, mais plutôt à des cristaux très-petits, coupés obliquement et diposés en gradins. M. Hahn y trouve lui-même une ressemblance «étonnante» avec la Schreibersite des fers météoriques, laquelle deviendra peut-être aussi, l'imagination aidant, un organisme. En revanche, ni les bras d'aucun de ces prétendus crinoïdes, ni surtout les plaques colossales composant le soi-disant calice d'un de ces crinoïdes, figuré Tab. XIX et qui ne sont autre chose qu'un cristal traversé par des cassures remplies d'une substance opaque, ne montrent aucune trace de la structure caractéristique des pièces squelettaires des crinoïdes.
+
+
+
 ...
 
 ## EXPLICATION DES FIGURES
