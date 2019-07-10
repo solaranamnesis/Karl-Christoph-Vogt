@@ -126,6 +126,10 @@ On peut appliquer à tous ces prétendus crinoïdes la même remarque que nous a
 
 Certes, aucune des figures données par M. Hahn ne correspond aux formes extérieures des crinoïdes, telles que nous les connaissons. L'ordonnance générale du corps correspond-elle mieux? Il est permis d'en douter. Sauf un seul cas, aucun de ces crinoïdes météoritiques n'obéit à la loi générale, qui établit le nombre de cinq rayons pour les animaux de cette classe. Quelques rares Cystoïdes seulement offrent des exceptions à cette règle en ce qu'ils ont un nombre réduit de bras toujours peu développés, simples, sans ramifications, et si peu apparents qu'on a longtemps nié leur existence. Chez les crinoïdes de Knyahinya, au contraire, quel développement luxueux de bras, ramifiés à l'excès, en nombre aussi considérable que l'on voudra! Les quelques vrais crinoïdes fossiles à six bras (Hexacrinus, Atocrinus) sont si rares, si voisins de genres semblables, que la plupart des auteurs les considèrent comme des monstruosités. Mais ils ne peuvent se comparer en aucune façon à ces Briarées tombés sur la terre et qui probablement ont été précipités, parce qu'ils se trouvaient en rébellion ouverte contre la loi établie pour les créations terrestres.
 
+La forme générales nous laisse en défaut, l'ordonnance des parties du corps nous échappe, - il faut donc s'attacher à la structure intime, microscopique de ces êtres, dépourvus de tiges, de calices et munis d'un nombre infini de bras ramifiés à outrance, lesquels, à tout prendre, n'étaient que bras et auraient été très embarrassés, suivant toute apparence, pour loger les organes nécessaires pour la vie, si toutefois ils avaient été animés.
+
+La structure microscopique 
+
 ...
 
 ## EXPLICATION DES FIGURES
