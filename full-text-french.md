@@ -138,7 +138,7 @@ J'avoue franchement que ce manque absolu de recherches comparatives sur des anim
 
 Aussi paraît-il qu'un des défenseurs de M. Hahn, son ami M. Weinland, zoologiste, a complétement abandonné les «soi-disant crinoïdes» de son ami «qu'il ne peut suivre partout dans ses déterminations zoologiques.» (Ausland, N° 26, 1881.)
 
-Je parlais de mes doutes.
+Je parlais de mes doutes. Ils se sont accrus lorsque je voyais, qu'on me permette de le dire, la désinvolture avec laquelle M. Hahn transportait ses organismes, nonseulement d'une classe, mais même d'un règne organique à l'autre. Des objets qui lui paraissaient des coraux au moment où il arrangeait ses planches, devenaient pendant la rédaction du texte des crinoïdes ou des spongiaires, comme s'il n'y avait pas un abîme entre ces différents types, comme si leur structure n'était pas, comme nous l'avons démontré, foncièrement différente. L'Urania, plante rapprochée des Floridées, ayant des organes de reproduction dessinés et décrits dans un ouvrage précédent (Urzelle), avait tout d'un coup perdu ces organes et était devenue, en un tour de main, une éponge. Si, dans sa réponse aux critiques de M. Rzehak (Ausland, N° 20) M. Weinland excuse son ami en disant «qu'au commencement de notre siècle «beaucoup d'observateurs capables prenaient encore les éponges pour des plantes,» il nous semble que cette excuse est pire que l'erreur, car un auteur actuel ne doit pas retomber dans les fautes commises il y a 80 ans!
 
 ...
 
