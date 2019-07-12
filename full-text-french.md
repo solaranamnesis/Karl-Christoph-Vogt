@@ -144,7 +144,7 @@ Je me trompe. M. Hahn motive ces transpositions par un des chapitres les plus cu
 
 «Le lambeau sémicirculaire se divise en couches, les couches en tubes, les tubes se divisent en travers. Maintenant se forment des bras, réunis par un canal. Un calice se développe entre les bras et la tige de fixation et le crinoïde le plus simple est là!» En vérité, c'est excessivement simple que ça!
 
-
+Il y a cependant un fond de vérité dans cette singulière énonciation. Tous ces organismes de M. Hahn procèdent en effet d'un même type, mais qui est loin d'être organique. Je reviendrai sur ce sujet en démontrant que le mot «structure organique» dont M. Hahn et ses amis font un usage vraiment abusif, est un mot entièrement vide de sens, lorsqu'on l'emploie en général et en l'appliquant à toutes les formes sans exception et qu'il ne peut être employé qu'en l'appliquant à un objet déterminé et connu. On peut dire: telle structure est identique à celle des éponges, des coraux, des crinoïdes, donc elle est organique; on ne peut pas dire: tel objet a une structure organique ou inorganique, car d'un côté des corps engendrés par des organismes, comme les polypiers des coraux, ne sont composés que de cristaux et d'un autre côté des corps absolument inorganiques peuvent engendrer des formes impossibles à distinguer de formations organiques.
 
 ...
 
