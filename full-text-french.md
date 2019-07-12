@@ -152,6 +152,10 @@ A défaut de preuves positives, M. Hahn a cherché à accumuler un certain nombr
 
 Nous n'allons pas suivre M. Hahn dans ces généralités lesquelles, comme nous venons de le dire, n'ont aucune valeur en elles-mêmes; nous examinerons, en étudiant les faits donnés par l'observation, les détails pour arriver après à des conclusions générales.
 
+M. Hahn a examiné 19 Météorites. C'est celle de Knyahinya (9 Juin 1866) qui lui a fourni le matériel le plus considérable. Sa collection de 360 coupes fines doit être, si nous en croyons M. Weinland, la plus magnifique collection du monde. Nous le croirons volontiers. Sauf quelques rares exceptions, lesquelles du reste n'offrent aucun type nouveau, toutes les figures de l'ouvrage en question représentent des prétendus organismes de Knyahinya. Un seul fragment de cette chute a fourni cette multitude de formes, que M. Hahn évalue à plusieurs centaines. C'est bien du bonheur, sans doute, que de trouver dans un seul caillou tant de formes réunies ensemble. Nous autres paléontologistes terrestres ne sommes pas aussi fortunés.
+
+Or, la méthode de recherches, suivie par M. Hahn et ses amis, est toujours la même très connus depuis longtemps; on fait des coupes minces et on observe au microscope.
+
 ...
 
 ## EXPLICATION DES FIGURES
