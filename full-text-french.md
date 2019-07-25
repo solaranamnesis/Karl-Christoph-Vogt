@@ -164,6 +164,8 @@ Or, la méthode de recherches, suivie par M. Hahn et ses amis, est toujours la m
 
 J'avoue que mon expérience va à fin contraire. Sur des coupes semi-transparentes, je ne vois que des choses confuses et ce n'est que sur des coupes très minces et très transparentes que je vois les détails de structure. Je reviendrai du reste sur ce sujet.
 
+Dans mes études, entreprises dans le but de me convaincre de l'existence d'organismes dans les aérolithes, je devais nécessairement m'adresser aux chondrites et spécialement aux chondres mêmes, qui en forment la plus grande portion. Pour M. Hahn, les chondrites ne sont, comme nous l'avons dit, qu'un «feutre d'organismes» et les cristaux y forment une exception des plus rares. M. Weinland ne va pas si loin. «Les différentes chondrites, dit-il, sont très inégalement riches en conformations organiques; quelques-unes en sont composées aux deux tiers et plus.» Et le troisième tiers de la masse? Je pense que les deux amis se mettront d'accord sur ce tiers, organique pour l'un, inorganique évidemment pour l'autre. C'est un détail d'appréciation, sans doute; mais comme il s'applique aux mêmes objets préparés par M. Hahn et que M. Weinland avait à sa disposition, il a son importance. Que deviennent en face de ce tiers les preuves négatives de M. Hahn, suivant lesquelles les formes de ce tiers ne peuvent pas être inorganiques?
+
 
 
 
