@@ -160,6 +160,11 @@ Or, la méthode de recherches, suivie par M. Hahn et ses amis, est toujours la m
 
 «J'ajoute ici une remarque, que confirmera chacun qui s'est occupé de coupes minces de pétrifications.»
 
+«Ce n'est que dans des cas rares que la structure reste visible sur des coupes parfaitement transparentes et par conséquent très minces. L'observateur au microscope est au suprême degré réjoui par les belles formes et lignes qu'il voit à sa coupe semi-transparente. Dans sa joie, il veut faire encore mieux et s'attend, en continuant à user sa coupe, à voir une image parfaite. Mais lorsqu'il remet pour une seconde fois sa coupe sous le microscope, il n'y voit plus qu'une étendue presque sans structure, des formes à peine indiquées, incertaines dans les contours, qui ne laissent plus reconnaître sous le microscope ce qu'on apercevait un moment auparavant sous la loupe. Mais ce phénomène est en connexion avec la métamorphose des roches et des formes qui y sont incluses. La chose est du reste connue et n'a pas besoin de détails plus spéciaux» (P. 16 et 17.)
+
+J'avoue que mon expérience va à fin contraire. Sur des coupes semi-transparentes, je ne vois que des choses confuses et ce n'est que sur des coupes très minces et très transparentes que je vois les détails de structure. Je reviendrai du reste sur ce sujet.
+
+
 
 
 ...
