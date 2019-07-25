@@ -156,6 +156,12 @@ M. Hahn a examiné 19 Météorites. C'est celle de Knyahinya (9 Juin 1866) qui l
 
 Or, la méthode de recherches, suivie par M. Hahn et ses amis, est toujours la même très connus depuis longtemps; on fait des coupes minces et on observe au microscope.
 
+«Je faisais, dit M. Hahn, à dessein les coupes dans trois épaisseurs; peu translucides, pour avoir les corps inclus aussi complets que possible; très minces, pour voir clairement la structure; la plus grande partie de telle manière qu'on avait les deux vues à la fois.»
+
+«J'ajoute ici une remarque, que confirmera chacun qui s'est occupé de coupes minces de pétrifications.»
+
+
+
 ...
 
 ## EXPLICATION DES FIGURES
