@@ -174,7 +174,17 @@ J'ai voulu cette description en entier parce parce qu'elle correspond assez, sau
 
 Je dois citer ici un fait étrange. M. Gümbel a étudié aussi les météorites charbonneuses de Bokkeveld et de Kaba. «J'espérais, dit-il (p. 71), que par le moyen de coupes minces je pourrais peut-être découvrir dans la masse charbonneuse une trace de structure organique. Cette masse montre dans les endroits rares où elle peut être rendue transparente, la structure membraneuse ou finement granuleuse que l'on rencontre ailleurs sur des substances semblables...» «Je n'ai pu découvrir aucune indication de structure organique...» Il répète, en parlant de la météorite de Kaba: «Aussi cette météorite charbonneuse, traitée par la méthode indiquée (traitement par le chlorate de potasse et par l'acide nitrique ensuite), ne montre aucune trace de structure organique. Peut-être réussira-t-on de trouver en employant le même procédé sur des masses plus considérables ou sur d'autres météorites charbonneuses, les preuves de l'existence d'êtres organiques sur des corps célestes en dehors de la terre.» (L. c. p 72.)
 
+Dans son ardeur de trouver des partisans, M. Hahn cite cette phrase de la manière suivante: «M. Gümbel termine ainsi sa description de la météorite de Kaba: «Peutêtre réussira-t-on de prouver l'existence d'êtres organiques sur des corps célestes en dehors de la terre.» J'espère, ajoute M. Hahn, que j'ai réussi!»
 
+N'est-il pas étrange, que M. Hahn passe sous silence la restriction, fort sage du reste, que pose M. Gümbel en fondant ses espérances uniquement sur les météorites charbonneuses?
+
+Je passe à mes observations.
+
+Outre une collection de plusieurs centaines de coupes fines de roches diverses formée depuis longtemps, le matériel à ma disposition m'a été fourni de la manière la plus obligeante par MM. de Hochstetter et Brezina (un bel échantillon entier de Knyahinya), par M. Daubrée (Péridot et Enstatite artificiels formés par fusion; météorites de Vouillé et de Knyahinya), par M. de Marignac (une douzaine de chondrites d'origines diverses), et par M. Stanislas Meunier (Entatite artificielle en givre). - N'ayant pas l'intention de donner des descriptions de ces différentes météorites, je me bornerai à celle Knyahinya et subsidiairement à celle de Vouillé, qui fournissent matière suffisante pour le but que je me propose.
+
+La première question que je devais me poser est celle-ci: La méthode de recherches, suivie exlusivement par M. Hahn et ses amis, est-elle exempte d'erreurs possibles?
+
+Réponse négative. En effet, les structures observables sur des organismes vivants et fossiles se maintiennent jusque dans les coupes les plus minces et deviennent même plus saisissables à mesure que la coupe devient plus transparente; - en revanche, les structures observées par M. Hahn ne sont visibles, dans la plupart des cas, comme il le dit lui-même, que sur des coupes semi-transparentes et disparaissent lorsqu'on pousse le travail plus loin. Il fallait donc rechercher à quoi tient cette différence fondamentale; il fallait chercher, en outre, s'il n'était pas possible de contrôler les résultats fournis par l'observation microscopique des plaques minces, en employant d'autres moyens d'exploration.
 
 
 
