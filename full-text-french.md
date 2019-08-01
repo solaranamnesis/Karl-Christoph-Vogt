@@ -186,7 +186,9 @@ La première question que je devais me poser est celle-ci: La méthode de recher
 
 Réponse négative. En effet, les structures observables sur des organismes vivants et fossiles se maintiennent jusque dans les coupes les plus minces et deviennent même plus saisissables à mesure que la coupe devient plus transparente; - en revanche, les structures observées par M. Hahn ne sont visibles, dans la plupart des cas, comme il le dit lui-même, que sur des coupes semi-transparentes et disparaissent lorsqu'on pousse le travail plus loin. Il fallait donc rechercher à quoi tient cette différence fondamentale; il fallait chercher, en outre, s'il n'était pas possible de contrôler les résultats fournis par l'observation microscopique des plaques minces, en employant d'autres moyens d'exploration.
 
+Je prie de croire que je n'ai pas négligé la simple inspection de coupes minces et que les meilleurs instruments de Leitz, de Seibert et Krafft, de Verick et de Zeiss m'ont servi à tour de rôle. Je n'aurais pas mentionné ce détail, absolument insignifiant, parce que chacun a maintenant un bon microscope, si l'on n'avait pas appuyé d'une manière tout à fait particulière dans un article populaire sur l'excellence de l'instrument avec lequel M. Hahn fait ses observations.
 
+Il ne fallait pas pousser bien loin l'examen des coupes faites dans le plan du rayonnement, pour reconnaître que les chondres étaient composés, comme l'a dit Gümbel, de colonnettes cristalloïdes, souvent simples, souvent aussi ramifiées, les branches partant dans ce dernier cas sous des angles 
 
 ...
 
