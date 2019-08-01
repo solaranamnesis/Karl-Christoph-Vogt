@@ -188,7 +188,11 @@ Réponse négative. En effet, les structures observables sur des organismes viva
 
 Je prie de croire que je n'ai pas négligé la simple inspection de coupes minces et que les meilleurs instruments de Leitz, de Seibert et Krafft, de Verick et de Zeiss m'ont servi à tour de rôle. Je n'aurais pas mentionné ce détail, absolument insignifiant, parce que chacun a maintenant un bon microscope, si l'on n'avait pas appuyé d'une manière tout à fait particulière dans un article populaire sur l'excellence de l'instrument avec lequel M. Hahn fait ses observations.
 
-Il ne fallait pas pousser bien loin l'examen des coupes faites dans le plan du rayonnement, pour reconnaître que les chondres étaient composés, comme l'a dit Gümbel, de colonnettes cristalloïdes, souvent simples, souvent aussi ramifiées, les branches partant dans ce dernier cas sous des angles 
+Il ne fallait pas pousser bien loin l'examen des coupes faites dans le plan du rayonnement, pour reconnaître que les chondres étaient composés, comme l'a dit Gümbel, de colonnettes cristalloïdes, souvent simples, souvent aussi ramifiées, les branches partant dans ce dernier cas sous des angles très aigus et diminuant alors progressivement d'épaisseur depuis le point de départ excentrique vers la périphérie. Dans la plupart des cas, ces colonnettes étaient parfaitement droites, dans d'autres elles étaient légèrement courbées. M. Hahn revenantplusieurs fois, dans son livre, comme dans sa réponse à M. Rzehak (Ausland 1881. N° 26, p. 506) sur l'axiome, que des lignes courbes ne peuvent se présenter dans le règne minéral, je donnerai, dans un autre mémoire, les figures de quelques groupes et groupes de cristaux courbées, semblables aux frondes de certaines algues et qui se trouvent dans des laves et autres roches cristallines.
+
+Ces colonnettes rayonnantes, ramifiées ou non, plus ou moins épaisses, présentent toujours des incrustations opaques, non transparentes sur les coupes les plus fines et persistantes en grande partie malgré l'action des acides. Cette matière incrustante et fortement adhérente, remplit tous les interstices des colonettes et 
+
+
 
 ...
 
