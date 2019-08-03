@@ -200,6 +200,12 @@ Nous posons en fait, que tout corps transparent, que ce soit un dodécaèdre ou 
 
 A ces difficultés, inhérentes à la nature des objets, s'en ajoute une autre. Dans la plupart des chondres, les colonnettes sont tellement exiguës et minces, qu'il devient matériellement impossible de faire des coupes n'ayant que l'épaisseur d'une seule colonnette. Toutes les coupes, même les plus minces, contiennent donc plusieurs couches superposées de colonnettes. On conçoit aisément que ces corps superposés, transparents, mais incrustés d'une matière opaque et dont les bords ne se correspondent pas dans leur superposition, doivent nécessairement produire des effets d'ombres fallacieux et souvent indéchiffrables. Un interstice opaque entre deux colonnettes sousjacentes et placé dans l'axe médian de la colonnette qui se trouve dans le foyer de la lentille du microscope, donnera à cette colonnette une apparence comme si elle était percée par un canal longitudinal; des cloisons placées un peu obliquement par rapport à l'axe de la colonnette, entre lesquelles se placent les ombres produites par des cloisons sous-jacentes, donneront à la colonnette l'air d'être disposée en chapelet. Avec la meilleure volonté du monde et malgré l'emploi des meilleurs instruments, on ne peut arriver à vaincre toutes ces difficultés; je dirais même que plus on est exercé à l'observation microscopique, plus on se persuade que des certitudes ne peuvent être acquises.
 
+J'ai essayé la lumière polarisée, dont on ne doit jamais négliger l'emploi, lorsqu'il s'agit de l'étude de minéraux ou de roches; les résultats n'étaient pas assez concluants pour écarter tous les doutes. J'exposerai ces résultats plus tard dans leur ensemble.
+
+J'étais donc arrivé à la conclusion que la méthode d'observation, exlusivement employée par M. Hahn et ses amis, savoir, l'étude microscopique de coupes minces, ne pouvait conduire à des résultats certains. M. Hahn voit toute la masse des chondrites composée d'organismes; M. Weinland n'en voit que dans les deux tiers; M. Rzehak (Ausland, 1881, N° 26) n'en voit pas du tout, et examen fait de tout, je devais me ranger de l'avis de ce dernier observateur.
+
+Il fallait donc rechercher d'autres méthodes et d'autres comparaisons.
+
 ...
 
 ## EXPLICATION DES FIGURES
