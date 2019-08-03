@@ -198,7 +198,7 @@ Une seconde particularité sur laquelle insistent les organisateurs des chondrit
 
 Nous posons en fait, que tout corps transparent, que ce soit un dodécaèdre ou un prisme allongé à pans rectilignes, _paraîtra rond sous le microscope par la lumière transmise, lorsqu'il est entouré par une substance plus opaque_. C'est un phénomène élémentaire et qui s'explique parfaitement par la disposition de la substance entourante, qui laisse passer au milieu une plus grande quantité de lumière que sur les bords, où elle se présente avec une épaisseur plus considérable. Des ombres diminuant graduellement vers un centre ou vers une ligne, augmentant graduellement vers le bord nous donnent l'impression d'une bosse ronde à surfaces courbes. Ceci arrive d'autant plus facilement, lorsque les pans des bords se rencontrent sous des angles émoussés. Or, de même comme les enstatites massives présentent des angles tellement émoussés qu'elles paraissent rondes, de même aussi les prismes allongés des enstatites paraissent arrondis et complétement ronds, lorsqu'ils sont entourés par une matière plus opaque comme par une gaîne.
 
-
+A ces difficultés, inhérentes à la nature des objets, s'en ajoute une autre. Dans la plupart des chondres, les colonnettes sont tellement exiguës et minces, qu'il devient matériellement impossible de faire des coupes n'ayant que l'épaisseur d'une seule colonnette. Toutes les coupes, même les plus minces, contiennent donc plusieurs couches superposées de colonnettes. On 
 
 ...
 
