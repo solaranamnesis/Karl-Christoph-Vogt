@@ -196,6 +196,8 @@ MM. Weinland et Hahn insistent beaucoup, soit sur la disposition quelquefois ré
 
 Une seconde particularité sur laquelle insistent les organisateurs des chondrites repose sur le fait que les colonnettes sont des véritables tubes ronds, formés par une paroi opaque et par un contenu clair, un remplissage d'olivine ou d'enstatite. Suivant eux, la substance incrustante opaque serait donc le squelette primitif de l'animal, tandis que la substance claire des colonnettes formerait le moule des cavités, remplies autrefois par la substance molle et détruite de l'animal.
 
+Nous posons en fait, que tout corps transparent, que ce soit un dodécaèdre ou un prisme allongé à pans rectilignes, _paraîtra rond sous le microscope par la lumière transmise, lorsqu'il est entouré par une substance plus opaque_. C'est un phénomène élémentaire et qui s'explique parfaitement par la disposition de la substance entourante, qui laisse passer au milieu une plus grande quantité de lumière que sur les bords, où elle se présente avec une épaisseur plus considérable. Des ombres diminuant graduellement vers un centre ou vers une ligne, augmentant graduellement vers le bord nous donnent l'impression d'une bosse ronde à surfaces courbes. Ceci arrive d'autant plus facilement, lorsque les pans des bords se rencontrent sous des angles émoussés. Or, de même comme les enstatites massives présentent des angles tellement émoussés qu'elles paraissent rondes, de même aussi les prismes allongés des enstatites paraissent arrondis et complétement ronds, lorsqu'ils sont entourés par une matière plus opaque comme par une gaîne.
+
 
 
 ...
