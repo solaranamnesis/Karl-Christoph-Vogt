@@ -206,6 +206,12 @@ J'étais donc arrivé à la conclusion que la méthode d'observation, exlusiveme
 
 Il fallait donc rechercher d'autres méthodes et d'autres comparaisons.
 
+M. Gümbel avait déjà montré le chemin. Il a toujours eu soin de contrôler ses observations sur les coupes minces par des opérations micro-chimiques. En parlant de la météorite de Mauerkirchen (20 Nov. 1768) il dit (l. c. p. 19): «Aprés avoir traité le matériel finement écrasé (non pulvérisé) par de l'eau régale et de la potasse caustique, je vis que les parties métalliques et les esquilles jaunâtres (olivine) avaient disparu et que le reste consistait en morceaux blancs ou brunâtres qui se laissent facilement distinguer sous le microscope. Les fragments brunâtres sont fortement fendillés, rarement pourvus de traces de stries parallèles opaques; ils sont transparents et vivement colorés de taches multicolores par la lumière polarisée. Ce sont sans doute des fragments d'un minéral du groupe des Augites. Les esquilles blanches, au contraire, sont souvent seulement translucides, en partie attaquées par les acides et ne montrent, à la lumière polarisée, que des couleurs mates disposées en taches qui par-ci et par-là indiquent une disposition par bandes.» Et en parlant de la météorite de Krâhenberg (5 Mai 1869) (l. c. p. 57). On voit dans une coupe mince traitée à l'acide chlorhydrique et tenant encore ensemble des lacunes nombreuses, plus ou moins grandes, indiquant la place des matériaux dissous par l'acide. En traitant cette coupe ensuite avec une solution de potasse caustique, on la désagrège en petits morceaux, granules et parties pulvérulentes, parmi lesquels les esquilles provenant des inclusions plus grandes se distinguent par leur plus grande consistance. Il est très remarquable que dans les morceaux ayant une structure réticulée à stries, quand même ils tiennent encore ensemble, les stries transparentes sont complétement détruites et que les lamelles intermédiaires opaques sont seules conservées et se présentent comme un squelette. On peut mettre ce fait hors de doute par l'examen à la lumière polarisée.»
+
+J'ai suivi cette méthode. J'ai traité des coupes, j'ai traité des chondres écrasés, non pulvérisés et comme c'est la météorite de Knyahinya qui seule a fourni toutes les formes décrites et figurées par M. Hahn, j'ai choisi cette météorite pour mes expériences.
+
+
+
 ...
 
 ## EXPLICATION DES FIGURES
