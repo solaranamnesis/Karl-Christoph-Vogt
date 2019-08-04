@@ -210,6 +210,9 @@ M. Gümbel avait déjà montré le chemin. Il a toujours eu soin de contrôler s
 
 J'ai suivi cette méthode. J'ai traité des coupes, j'ai traité des chondres écrasés, non pulvérisés et comme c'est la météorite de Knyahinya qui seule a fourni toutes les formes décrites et figurées par M. Hahn, j'ai choisi cette météorite pour mes expériences.
 
+Après avoir écrasé les fragments en petits morceaux d'un millimètre de diamètre de diamètre environ, j'ai épuisé avec de l'acide chlorhydrique bouillant cette grenaille, dans laquelle beaucoup de chondres se laissaient encore voir presque intactes avec leurs surfaces hérissées de petites pointes cristallines. Il y a un dégagement assez tumultueux d'hydrogène sulfuré, preuve de la présence de pyrites; le fer dissous colore l'acide en jaune verdâtre. J'obtiens un précipité léger nuageux, presque gélatineux, qui se dépose très lentement, tandis que de petites particules brillantes et incolores tombent rapidement au fond et forment comme une farine blanche qui recouvre les grains restés entiers au fond de l'éprouvette.
+
+Examiné au microscope, le précipité léger et nuageux se présente comme une substance amorphe avec des granules extrêmement fins en poussière. C'est évidemment de la silice amorphe. Quelques trichites assez rares, très noirs et très fins se rencontrent disposés en touffes au milieu de cette masse, - je les attribue à des parcelles de la croûte de fusion, dont une partie était encore attachée au fragment analysé. Le précipité blanc, lourd et farineux, est composé au contraire en totalité de petites pièces cristalloïdes, dont je donnerai la description plus loin.
 
 
 ...
