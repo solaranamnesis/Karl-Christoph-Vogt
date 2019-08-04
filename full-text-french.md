@@ -214,6 +214,14 @@ Après avoir écrasé les fragments en petits morceaux d'un millimètre de diam�
 
 Examiné au microscope, le précipité léger et nuageux se présente comme une substance amorphe avec des granules extrêmement fins en poussière. C'est évidemment de la silice amorphe. Quelques trichites assez rares, très noirs et très fins se rencontrent disposés en touffes au milieu de cette masse, - je les attribue à des parcelles de la croûte de fusion, dont une partie était encore attachée au fragment analysé. Le précipité blanc, lourd et farineux, est composé au contraire en totalité de petites pièces cristalloïdes, dont je donnerai la description plus loin.
 
+Outre les pyrites et les métaux dissous, l'acide chlorhydrique a donc disjoint quelques particules extrêmes des colonnettes en dissolvant et en décomposant un silicate incrustant probablement riche en fer.
+
+J'attaque avec de l'eau régale bouillante. Dégagement tumultueux d'acide nitreux; l'acide est de nouveau coloré en jaune par du fer. L'eau régale a donc dissous un autre silicate ferrique plus résistant à l'attaque. Plus de précipité nuageux; mais le précipité farineux a augmenté. Les grains restants sont d'un gris sale, hérissés d'aspérités.
+
+J'examine ce préciptié farineux au microscope après l'avoir préparé au baume.
+
+
+
 
 ...
 
