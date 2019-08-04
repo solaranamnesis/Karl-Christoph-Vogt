@@ -228,6 +228,7 @@ Je réserve la description des morceaux plus composés offrant une structure ré
 
 Je divise le reste de la matière, traitée successivement par les deux acides indiqués en deux portions et je traite l'une de ces portions avec de la potasse caustique, tandis que j'attaque l'autre avec de l'acide sulfurique concentré.
 
+L'acide sulfurique concentré n'a plus aucune action; la potasse caustique au contraire décompose encore une partie. Il se forme la même substance presque gélatineuse, qui se dépose très lentement et le même précipité farineux, comme par l'action des acides employés en premier lieu. En dernier lieu, il reste un dépôt grisâtre de substance non décomposée, lequel peut-être aurait été réduit aussi, si j'avais continué la cuisson plus longtemps. Le précipité farineux est entièrement composé d'esquilles très fines, cristalloïdes, réfractant fortement la lumière et brillant, sous les Nicols croisés, d'une lumière blanche un peu bleuâtre. Le dépôt gris montre encore des restes des chondres tenant ensemble. Mais la matière incrustante est beaucoup raréfiée et ces pièces brillent, sous les Nicols croisés, des plus belles couleurs de l'arc-en-ciel. J'en ai dessiné une dans cet état (fig. 6). C'est une preuve de plus que l'apparition des couleurs de double réfraction au polariscope est simplement empêchée par la présence de la matière incrustante opaque.
 
 
 ...
