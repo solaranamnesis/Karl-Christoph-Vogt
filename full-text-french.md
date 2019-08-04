@@ -220,6 +220,8 @@ J'attaque avec de l'eau régale bouillante. Dégagement tumultueux d'acide nitre
 
 J'examine ce préciptié farineux au microscope après l'avoir préparé au baume.
 
+Je vois immédiatement que sur la plupart des débris la matière opaque incrustante n'a pas complétement disparu. Il doit donc y avoir une substance, probablement un silicate, contenant du fer ou un autre métal, qui est insoluble dans les acides les plus forts. Mais la matière incrustante a partout considérablement diminué, et je trouve une quantité de petites pièces qui sont entièrement nettoyées et transparentes comme de l'eau, tandis que d'autres présentent une opacité plus grande.
+
 
 
 
