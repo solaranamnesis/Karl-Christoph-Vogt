@@ -250,6 +250,12 @@ J'ai tenu à rapporter tous ces détails, fastidieux peut-être, parce qu'ils é
 
 On pourrait soulever l'objection que les organismes ont été détruits par les acides et que les cristaux seuls ont résisté. Il est facile d'écarter cette objection par les raisons suivantes: 1° Des fragments à prétendue structure organique et des chondres presque entiers ont résisté aux acides, mais en dévoilant leur structure cristalline par la raréfaction de la substance incrustante; 2° l'action mécanique du polissage jusqu'à la dernière limite a produit les mêmes effets.
 
+Arrivé à ce point de mes recherches, je devais nécessairement me demander si des formes analogues ou identiques avec celles des chondres pouvaient être démontrées, soit dans des productions artificielles, soit dans des roches naturelles. Quant aux premières, je ne pouvais m'adresser qu'à MM. Daubrée et Stanislas Meunier, ces deux savants étant les seuls qui se soient occupés d'expériences relatives à la genèse des météorites. Je dois remercier ces messieurs qui ont mis à ma disposition, avec la plus grande amabilité, un matériel considérable.
+
+J'ai déjà donné la description des enstatites artificielles, produites par M. Daubrée, par la fusion des péridots avec du fer doux. On peut comparer les dessins d'une coupe très fine de ce produit (fig. 9) et celui d'une autre moins mince (fig. 10), avec la reproduction (fig. 8) d'une partie de la météorite de Vouillé; il est impossible de trouver des échantillons d'un même minéral plus ressemblants. M. Daubrée était donc parfaitement fondé de dire, que par son procédé de fusion, décrit déjà en 1866, il avait produit des formes et des agrégations semblables à celles qui se trouvent dans les météorites. Tout, forme, interstices remplis d'une matière incrustante, qualités optiques, tout se correspond exactement. Il n'y a de différence que dans la couleur; les cristaux de la météorite de Vouillé sont un peu teintés en jaune, tandis que ceux du produit artificiel sont incolores. La couleur jaune est presque toujours produite par infiltration de fer; en suivant ces taches, on arrive presque infailliblement à une esquille noire de fer météorique qu'elles entourent comme une auréole. Des groupes semblables de cristaux nous sont donnés par M. Hahn (Tab. XXI, fig. 5; Tab. XXII fig. 1 et 2) comme des parties de crinoïdes.
+
+
+
 
 ...
 
