@@ -308,9 +308,27 @@ Cette manière de voir se confirme encore par l'aspect du givre d'enstatite arti
 
 Je n'ai pas besoin d'insister plus longuement sur ces observations. Elles prouvent, je pense, d'une manière péremptoire, que toutes les conclusions si étranges, auxquelles est arrivé M. Hahn, reposent sur des appréciations erronées, engendrées par des recherches incomplètes, faites sans contrôle, sans comparaison sérieuse avec des organismes réels, vivants ou fossiles et sans critique reposant sur l'emploi de méthodes différentes d'exploration. Toute cette prétendue création animale contenue dans les chondres des météorites doit donc être reléguée dans le domaine des erreurs involontaires, dont pullule l'histoire de la science.
 
+Dans un second mémoire nous prouverons, mon collègue M. Denis Monnier et moi, par des expériences sans réplique, que l'on peut produire à volonté les formes organiques essentielles, telles que tubes, tubes à cloisons, cellules à canaux poriques, etc., en employant, pour cette fabrication de formes déterminées, rien que des substances absolument inorganiques, telles que sels métalliques, silicates, etc. Nous prouverons que la forme de ces produits est constante en ce sens, que certains réactifs produisent des tubes cylindriques, creux à l'intérieur, remplis de dépôts granuleux au centre du tube, avec parois membraneuses et cloisons transversales, tandis que d'autres réactifs produisent des cellules à parois, à canaux poriques arrondis, droits ou flexueux, rayonnant depuis le centre et s'ouvrant, sur la périphérie de la cellule, avec des orifices béants. Nous démontrerons par ces expériences qu'il n'existe aucun caractère général de forme, qui puisse être invoqué comme distinctif entre les produits organiques et inorganiques, et nous exposerons en détail, avec appui par des figures photographiées, les résultats auxquels nous sommes arrivés et dont nous avons donné connaissance à la Section des sciences de l'Institut national genevois dans sa séance du 13 Décembre 1881.
 
+Je crois, en résumé, que le présent mémoire justifie les propositions suivantes:
 
-...
+1° Les prétendus organismes des météorites (chondrites) n'existent pas, et ce que l'on a décrit et figuré comme tels est engendré par des conformations cristallines absolument inorganiques;
+
+2° Aucun de ces prétendus organismes n'a la structure microscopique propre aux organismes vrais, auxquels on les a associés; en particulier, les prétendus spongiaires ne montrent pas la structure des vrais spongiaires vivants ou fossiles, ni les soi-disant coraux celle des polypiers des Anthozoaires, ni les Crinoïdes imaginaires celle des Crinoïdes reconnus;
+
+3° Les structures observées sont ou dues à la présence d'une matière incrustante opaque ou le résultat d'illusions d'optique, causées par une méthode incomplète de recherches microscopiques;
+
+4° L'observation microscopique de plaques minces, obtenues par le polissage, poussé seulement jusqu'à une certaine limite, est insuffisante pour se rendre compte de la structure des chondres. Cette recherche doit être contrôlée par des observations faites sur des plaques réduites à la dernière limite, ainsi que par l'examen des chondres dissociés au moyen des acides et de la potasse caustique;
+
+5° Les observations de contrôle démontrent avec évidence que tous les chondres sont composés de pièces transparentes, cristallines, groupées de différentes manières, mais le plus souvent en colonnettes ou en aigrettes ramifiées et rayonnantes depuis un centre. Les interstices, les cassures et les séparations de ces pièces groupées sont remplis par une matière incrustante opaque, résistant en grande partie à l'action des acides, simulant des cloisons «ayant corps» et autres particularités, attribuées à une structure organique;
+
+6° Les aigrettes composant les chondres sont identiques, quant à leur forme et au groupement des pièces cristallines qui les composent, avec les aigrettes d'enstatite artificielle obtenues par M. Stanislas Meunier dans ses expériences; comme aussi les boulettes de givre, formées dans ces mêmes expériences, sont analogues, quant à l'ensemble du groupement, aux chondres ramifiés et articulés;
+
+7° Certains chondres à fin striage laissent voir un groupement colonnaire rectiligne, identique avec la structure des enstatites terrestres (Schillerfels de Baste dans le Harz).
+
+8° La plupart des chondres contiennent une quantité de groupes de cristaux plus gros, identiques, quant à leur groupement, leur forme et leur structure, avec les groupes de cristaux d'enstatites obtenus par M. Daubrée par la fusion du péridot avec du fer doux;
+
+9° En dehors des masses pulvérulentes, des substances métalliques et de la matière incrustante non cristallisée, les météorites ordinaires ne sont composés que d'éléments cristallins, réunis en chondres, comme le démontre la désagrégation par l'usure ou par les acides.
 
 ## EXPLICATION DES FIGURES
 
