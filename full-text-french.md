@@ -274,6 +274,12 @@ M. Meunier a insisté sur la ressemblance de ce givre avec les chondres; M. Rzeh
 
 Les givres à ma disposition étaient des préparations, couvertes d'une lame en verre mince. Mais leur distribution sur différents niveaux démontre déjà que les colonnettes doivent rayonner dans tous les sens et former des flocons en boule. M. Meunier m'informe qu'en effet les givres sortent sous cette forme du tube où ils se sont constitués; mais que ces flocons sont tellement délicats que la pression du couvre-objet suffit pour les aplatir complétement. J'ai reçu dernièrement un petit tube rempli de givre, tel qu'il sort de l'expérience, et j'ai pu me convaincre qu'il renferme des petits flocons globulaires, composés d'aigrettes rayonnant dans tous les sens.
 
+Je pense que la démonstration est aussi complète que possible. Les chondres de Knyahinya, considérés comme des animaux par M. Hahn, mais débarrassés autant que possible de la matière incrustante, se montrant, comme le disait M. Meunier, composés exactement des mêmes éléments comme le givre d'enstatite artificielle.
+
+Il est donc acquis au débat que des groupes de cristaux plus considérables, réunis par une matière incrustante, qui en remplit les interstices et les cassures de manière à produire des cloisons ayant corps et qui se trouvent à profusion dans la météorite de Knyahinya comme dans les autres chondrites, ont été artificellement reproduits par M. Daubrée, tandis que les formes rayonnantes, ramifiées et articulées des chondres, ont été préparées par M. Meunier.
+
+La seconde question qui se présentait est celle-ci: Se trouve-t-il dans des roches terrestres des formes semblables à celles qui se rencontrent dans les météorites?
+
 
 
 ...
