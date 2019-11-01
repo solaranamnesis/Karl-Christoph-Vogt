@@ -33,7 +33,7 @@ Hahn therefore believes that he has provided "incontestable proof that the chond
 "These forms are not mineral forms," says Mr. Hahn with absolute certainty. But knowing very well that similar such assertions are rarely accepted by the scientific world, without palpable proofs, he seeks to give them by grouping them into two categories, stating positive proofs and negative proofs.
 
 "In order to prove that a plant or animal organism is present, I consider it necessary to prove:  
-1. a determinable form," (I do not know how to translate the term used several times by Mr. Hahn, "geschlossene Form"; the literal translation, "closed form" has no meaning)  
+1. a determinate form," (I do not know how to translate the term used several times by Mr. Hahn, "geschlossene Form"; the literal translation, "closed form" has no meaning)  
 2. a form that repeats,  
 3. one which repeats itself in degrees of development,  
 4. structure, namely cells or vessels,  
