@@ -27,3 +27,5 @@ Hahn therefore believes that he has provided "incontestable proof that the chond
 "When I said that the chondrite is nothing but an animal-fabric, an animal-felt, a qualification must be sustained."
 
 "There are, however, very small, sharply outlined places in this animal-bone stone, which could probably (but not necessarily) be from the beginning rocks. These are slate-blue, uncommon inclusions with 3-5 mm. diameters _lacking definite recurring forms_, which include distinct crystals in their grayish mass, these are on average either squares or rhombuses, at other times it includes hexagons. This mineral can be either augite or olivine. It does not knock on the fact, _that in the olivine strata formations exist and that these are the cause of the construction of the planet bodies, their self-constructed development and complex composition_."
+
+"In all cases, however, the ratio in the chondritic rock is the opposite as that in the sedimentary layers of Earth. In the latter the organisms are stored and the rock strata enclose them; in the first there are only organisms and the rock strata are masses of such." (p. 35.)
