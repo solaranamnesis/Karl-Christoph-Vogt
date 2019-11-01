@@ -34,7 +34,7 @@ Hahn therefore believes that he has provided "incontestable proof that the chond
 
 "In order to prove that a plant or animal organism is present, I consider it necessary to prove:  
 1. a determinate form," (I do not know how to translate the term used several times by Mr. Hahn, "geschlossene Form"; the literal translation, "closed form" has no meaning)  
-2. a form that repeats,  
+2. "a form that repeats,  
 3. one which repeats itself in degrees of development,  
 4. structure, namely cells or vessels,  
-5. resemblance to known forms.  
+5. resemblance to known forms."  
