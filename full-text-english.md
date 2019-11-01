@@ -20,5 +20,5 @@ I summarize, by literally translating the author's words, the main results he la
 
 "Anyone who even superficially surveys the forms will soon find that they provide an actual historical development. All the transitions from the sponge to the coral, from the coral to the crinoid are present, so that it becomes doubtful if one should assign new species to these transitions." (p. 3)
 
-"The investigations up till now, in the whole field, with the exception of [Karl Wilhelm von] Gümbel's work in the Munich Academy, are of little use, both regarding their accuracy of observation and even more as regards their interpretations based upon those observations, i.e. on unproven hypotheses and weak assumptions — not suitable for scientific findings as such." (p. 7)
+"The investigations up till now, in the whole field, with the exception of [Karl Wilhelm von] Gümbel's work in the Munich Academy, are of little use, both regarding the accuracy of their observations and even more the interpretations based upon those observations, i.e. on unproven hypotheses and weak assumptions — not suitable for scientific findings as such." (p. 7)
 
