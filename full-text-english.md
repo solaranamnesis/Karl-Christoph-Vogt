@@ -38,3 +38,9 @@ Hahn therefore believes that he has provided "incontestable proof that the chond
 3. one which repeats itself in degrees of development,  
 4. structure, namely cells or vessels,  
 5. resemblance to known forms."  
+
+"If these requirements are valid, it remains only to decide whether plant or animal? Now ask yourself, do my forms fulfill these requirements?" (p. 20.)
+
+Needless to say, the response is affirmative.
+
+Of all these conditions laid out by Mr. Hahn, there are obviously only two that can decide the question from certain points of view; the others are equally applicable to minerals. Crystals have determinate forms, which always repeat themselves and always better than organic forms, in the diverse phases of development.
