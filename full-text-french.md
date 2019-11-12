@@ -1,12 +1,12 @@
-# LES PRÉTENDUS ORGANISMES DES MÉTÉORITES
+# Les Prétendus Organismes des Météorites
 
-## PAR CARL VOGT
+## Par Carl Vogt
 
-## PRÉSIDENT DE L'INSTITUT NATIONAL GENEVOIS
+## Président de L'Institut National Genevois
 
-### GENÈVE
+### Genève
 
-### IMPRIMERIE CENTRALE GENEVOISE, RUE DU RHONE, 52
+### Imprimerie Centrale Genevoise, Rue du Rhone, 52
 
 ### 1882
 
