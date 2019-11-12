@@ -1,12 +1,12 @@
-# THE PRETEND ORGANISMS OF THE METEORITES
+# The Pretend Organisms of the Meteorites
 
-## BY CARL VOGT
+## By Carl Vogt
 
-### PRESIDENT OF THE GENEVOIS NATIONAL INSTITUTE
+### President of the Genevois National Institute
 
-### GENEVA
+### Geneva
 
-### CENTRAL GENEVA PRINTING HOUSE, RUE DU RHONE, 52
+### Central Geneva Printing House, Rue du Rhone, 52
 
 ### 1882
 
