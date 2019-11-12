@@ -45,6 +45,6 @@ Needless to say, the response is affirmative.
 
 Of all these conditions laid out by Mr. Hahn, there are obviously only two that can decide the question from certain points of view; the others are equally applicable to minerals. Crystals have determinate forms, which always repeat themselves and always better than organic forms, in the various phases of development. Until now we were quite convinced that it was a privilege of the great number of organic types to change form during the different phases of their development; apart from spawn, germs and seeds, and larval forms, for example, which are often very different from those of definitive animals, and the cotyledons of plants, which often do not resemble definitive leaves in any way, crystal forms are extremely stable. Mr. Hahn maintains that we are in error. Granted, – only, in this case, the first three conditions he poses do not say anything about the distinction between organic and inorganic forms.
 
-The structure that Mr. Hahn invokes as the fourth is without a doubt preponderant, provided however that the animal or plant parts subject to the petrification persist.
+The structure that Mr. Hahn invokes as the fourth condition is without a doubt preponderant, provided however that the animal or plant parts subject to the petrification persist.
 
 ...
