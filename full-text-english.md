@@ -63,4 +63,6 @@ A. Sponges
 
 These are the structural details that must convert us to the opinion of Mr. Hahn. The _Urania_ fill, according to him, three twentieths of the total mass of the stony meteorites; they are displayed on six tables comprising thirty-one figures.
 
+In a previous work by the same author, _The Primordial Cell_, _Urania guilielmi_, dedicated to Emperor William [I], was represented as a plant with rounded leaves, wrapped up in their young age and equipped with capsules carrying spores. In passing through the present work, _Urania_ lost these capsules with their spores; it became a sponge. It is true that we are not allowed to learn of the point causing this change of place, so considerable, to occur;
+
 ...
