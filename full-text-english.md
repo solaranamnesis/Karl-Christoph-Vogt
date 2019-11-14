@@ -59,6 +59,8 @@ A. Sponges
 
 "Round, lobed bodies with an obvious place of growth." – "Folds caused by contraction." – "Circumvented spiral." – "The structure consists of an outer membrane enclosing lamellar layers." – "Blue color." – "Obvious stratification. One might attempt to place the form among the corals if the outer form did not exist." – "We believe to see the indication of a mouth opening."
 
-"After all this, I think _Urania_ is a sessile sponge that contracts in a spiral form, absorbing and expelling water like our living sponges."
+"After all this, I think _Urania_ is a sessile sponge that contracts in a spiral form, absorbing and expelling water like our living sponges." (p. 23 and 24.)
+
+These are the structural details that must convert us to the opinion of Mr. Hahn. The _Urania_ fill, according to him, three twentieths of the total mass of the stony meteorites; they are displayed on six tables comprising thirty-one figures.
 
 ...
