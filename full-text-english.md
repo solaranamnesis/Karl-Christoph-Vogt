@@ -53,4 +53,10 @@ We must therefore address the forms and special comparative structures. We must 
 
 We sequentially give a review on these claimed organisms by enumerating, with the same terms of the work, the aspects that the author attributes to different organisms which he believes to have recognized. 
 
+A. Sponges
+
+1. Urania
+
+"Round, lobed bodies with an obvious place of growth." – "Folds caused by contraction." – "Circumvented spiral." – "The structure consists of an outer membrane enclosing lamellar layers." – "Blue color." – "Obvious stratification. One might attempt to place the form among the corals if the outer form did not exist." – "We believe to see the indication of a mouth opening."
+
 ...
