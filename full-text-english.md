@@ -53,9 +53,9 @@ We must therefore address the forms and special comparative structures. We must 
 
 We sequentially give a review on these claimed organisms by enumerating, with the same terms of the work, the aspects that the author attributes to different organisms which he believes to have recognized. 
 
-A. Sponges
+"A. Sponges"
 
-1\. _Urania_
+"1\. _Urania_"
 
 "Round, lobed bodies with an obvious place of growth." – "Folds caused by contraction." – "Circumvented spiral." – "The structure consists of an outer membrane enclosing lamellar layers." – "Blue color." – "Obvious stratification. One might attempt to place the form among the corals if the outer form did not exist." – "We believe to see the indication of a mouth opening."
 
@@ -64,5 +64,11 @@ A. Sponges
 These are the structural details that must convert us to the opinion of Mr. Hahn. The _Urania_ fill, according to him, three twentieths of the total mass of the stony meteorites; they are displayed on six tables comprising thirty-one figures.
 
 In a previous work by the same author, _The Primordial Cell_, _Urania guilielmi_, dedicated to Emperor William [I], was represented as a plant with rounded leaves, wrapped up in its young age and equipped with capsules carrying spores. In passing through the present work, _Urania_ lost these capsules with their spores; it became a sponge. It is true that we are not allowed to learn of the point causing this change of place, so considerable, to occur; the author does not say a word about the reasons which obliged him to change his opinion. What aspects of this supposed organism were lost or gained to be transported from one kingdom to another? An inopportune question that the author does not answer.
+
+"2\. Sponges with spicules." (Table 7.)
+
+"I place Figure 1 among the _Astrospongia_. The spicules are regularly crossed. Figure 6 is an irregular spicule framework with a weakly indicated cavity." (p. 24.)
+
+The supposed spicules resemble, mistakenly, linear crystals dispersed in a homogeneous mass, such as seen in the initial coming of lava. In a few places we see a slightly marked tendency towards a stellar arrangement, very common in crystals, unusual in the spicules of sponges, whose forms are known to be quite different (1).
 
 ...
