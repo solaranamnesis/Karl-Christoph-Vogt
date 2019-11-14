@@ -55,7 +55,7 @@ We sequentially give a review on these claimed organisms by enumerating, with th
 
 A. Sponges
 
-1. Urania
+1\. _Urania_
 
 "Round, lobed bodies with an obvious place of growth." – "Folds caused by contraction." – "Circumvented spiral." – "The structure consists of an outer membrane enclosing lamellar layers." – "Blue color." – "Obvious stratification. One might attempt to place the form among the corals if the outer form did not exist." – "We believe to see the indication of a mouth opening."
 
