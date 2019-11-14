@@ -1,4 +1,4 @@
-# The Pretend Organisms of the Meteorites
+# The Claimed Organisms of the Meteorites
 
 ## By Carl Vogt
 
@@ -51,5 +51,6 @@ All that remains of the five conditions posed by Mr. Hahn is that last, the simi
 
 We must therefore address the forms and special comparative structures. We must push the comparison to the most minor details in appearance when we want to prove that this object which we have before our eyes is a sponge, a coral, or a crinoid. We leave aside, for the moment, the so-called negative proofs by which the author wants to demonstrate to us that the objects displayed by him cannot be mineral forms – they are of about the same value as his positive proofs. We address the special forms, which by their resemblance to known forms and by their identical structure have to provide incontestable proof that the chondrites are formed by organisms related to those of the Earth.
 
+We sequentially give a review on these claimed organisms by enumerating, with the same terms of the work, the aspects that the author attributes to different organisms which he believes to have recognized. 
 
 ...
