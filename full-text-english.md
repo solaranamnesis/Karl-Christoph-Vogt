@@ -49,4 +49,7 @@ The structure that Mr. Hahn invokes as the fourth condition is without a doubt p
 
 All that remains of the five conditions posed by Mr. Hahn is that last, the similarity with known forms. But here again the greatest uncertainties can take place. Are these the exterior forms? Are these the details of the structure of the forms? We mention, in another essay, a host of cases where prominent mineral conformations, produced artificially or by nature, mimic in a perfect manner organic forms and we have, on the other hand, in the corals, in the intracellular crystals of plants, in the otoliths of animals, a quantity of examples of mineral forms produced by organisms.
 
+We must therefore address the forms and special comparative structures. We must push the comparison to the most minor details in appearance when we want to prove that this object which we have before our eyes is a sponge, a coral, or a crinoid. We leave aside, for the moment, the so-called negative proofs by which the author wants to demonstrate to us that the objects displayed by him cannot be mineral forms – they are of about the same value as his positive proofs. We address the special forms, which by their resemblance to known forms and by their identical structure have to provide incontestable proof that the chondrites are formed by organisms related to those of the Earth.
+
+
 ...
