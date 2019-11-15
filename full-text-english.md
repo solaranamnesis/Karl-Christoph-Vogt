@@ -2,7 +2,7 @@
 
 ## By Carl Vogt
 
-### President of the Genevois National Institute
+## President of the Genevois National Institute
 
 ### Geneva
 
