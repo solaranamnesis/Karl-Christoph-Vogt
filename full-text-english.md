@@ -71,6 +71,6 @@ In a previous work by the same author, _The Primordial Cell_, _Urania guilielmi_
 
 The supposed spicules resemble, mistakenly, linear crystals dispersed in a homogeneous mass, such as seen in the initial coming of lava. In a few places we see a slightly marked tendency towards a stellar arrangement, very common in crystals, unusual in the spicules of sponges, whose forms are known to be quite different (1).
 
-The author could not have compared his _Urania_ and _Astrospongia_ with living and fossil sponges; he could not have studied the structure of the latter, for it would be impossible with this acquired knowledge to convince connoisseurs, as the notions and figures given by him have little rapport with the microscopic structure and nature of sponges. Mr. Hahn must be entirely ignorant of the fine research of Mr. Zittel on fossil sponges. (_Memoirs of the Munich Academy_, Vol. 12 and 13; _Handbook of Paleontology_, Vol. 1), because with this knowledge
+The author could not have compared his _Urania_ and astro-sponges with living and fossil sponges; he could not have studied the structure of the latter, for it would be impossible with this acquired knowledge to convince connoisseurs, as the notions and figures given by him have little rapport with the microscopic structure and nature of sponges. Mr. Hahn must be entirely ignorant of the fine research of Mr. Zittel on fossil sponges. (_Memoirs of the Munich Academy_, Vol. 12 and 13; _Handbook of Paleontology_, Vol. 1), because with this knowledge
 	
 ...
