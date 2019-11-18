@@ -77,7 +77,7 @@ The author could not have compared his _Urania_ and astro-sponges with living an
 
 ## Explanation of the Figures
 
-_[Figure 1.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ – Coupe d'une branche de corail vivant (Seriatopora caliendrum Ehrbg.) : _a_, Canal longitudinal de la branche principale. – _b_, _c_, _d_, Cellules coupées à différentes hauteurs. – _e_, Canal bourgeonnant. Sur les pointes, on voit les deux dispositions des cristaux, en plumes et en mailles. Gross. 100 diamètres.
+_[Figure 1.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ – Cross-section of a live coral branch (_Seriatopora caliendrum_ Ehrbg.): _a_, longitudinal channel of the main branch. – _b_, _c_, _d_, cells cut at different heights. - _e_, burgeoning channel. On the tips, we see two arrangements of crystals, in plumes and in meshes. Gross. 100 diameters.
 
 _[Figure 1a.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ – Groupement des cristaux en mailles aux bords. Gr. 500.
 
