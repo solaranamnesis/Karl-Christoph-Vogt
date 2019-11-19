@@ -91,7 +91,7 @@ _[Figure 5.](https://cdn.solaranamnesis.com/KarlVogt/Fig5.png)_ – A crystal ob
 
 _[Figure 6.](https://cdn.solaranamnesis.com/KarlVogt/Fig6.png)_ – Splinter from Knyahinya, treated with potash, having a columnar and articulated disposition. Gr. 300. Cross polars.
 
-_[Figure 7.](https://cdn.solaranamnesis.com/KarlVogt/Fig7.png)_ – Cristal disloqué de Knyahinya. Gr. 300. La matière incrustante pénètre partout et remplit les petits creux de la surface.
+_[Figure 7.](https://cdn.solaranamnesis.com/KarlVogt/Fig7.png)_ – A crystal dislocated from Knyahinya. Gr. 300. The encrusting material penetrates everywhere and fills the small cavities of the surface.
 
 _[Figure 8. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig8.png)_ – Groupe de gros cristaux dans une coupe mince de la météorite de Vouillé. Gr. 180. On y voit quelques gros amas de fer météorique. La matière incrustante opaque remplit tous les interstices.
 
