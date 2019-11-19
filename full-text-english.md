@@ -83,7 +83,7 @@ _[Figure 1a.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ – Grouping of
 
 _[Figure 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig2.png)_ – Hahnian crinoid from the Vouillé meteorite. Gr. 50. One sees the point of departure of the branched, articulated, radiating columns, often slightly curved and the cortical zone, displaying a very fine and close mesh design. Grains and splinters of meteoritic iron are dispersed throughout the mass.
 
-_[Figure 3.](https://cdn.solaranamnesis.com/KarlVogt/Fig3.png)_ – Pentacrinus europaeus. Gr. 50. Pour montrer la structure réticulée propre à toutes les pièces du squelette, composant la tige, le calice et les bras naissants.
+_[Figure 3.](https://cdn.solaranamnesis.com/KarlVogt/Fig3.png)_ – _Pentacrinus europaeus_. Gr. 50. In order to point out the reticular structure specific to all the pieces of the skeleton, composing the stem, the calyx, and the budding arms.
 
 _[Figure 4.](https://cdn.solaranamnesis.com/KarlVogt/Fig4.png)_ – Cristaux simulant des filaments d'algues dans une diorite de la rivière de Leith, près d'Edimbourg. Gr. 180. Ces cristaux sont des prismes hexaèdres ; l'ombre des côtes produit dans quelques-uns des traits longitudinaux simulant des canaux. Dans d'autres, on voit des véritables canaux médians avec libelle d'air ou des bulles vides rangées suivant l'axe.
 
