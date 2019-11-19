@@ -77,9 +77,9 @@ The author could not have compared his _Urania_ and astro-sponges with living an
 
 ## Explanation of the Figures
 
-_[Figure 1.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ – Cross-section of a live coral branch (_Seriatopora caliendrum_ Ehrbg.): _a_, longitudinal channel of the main branch. – _b_, _c_, _d_, cells cut at different heights. - _e_, burgeoning channel. On the tips, we see two arrangements of crystals, in plumes and in meshes. Gross. 100 diameters.
+_[Figure 1.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ – Cross-section of a live coral branch (_Seriatopora caliendrum_ Ehrbg.): _a_, longitudinal channel of the main branch. – _b_, _c_, _d_, cells cut at different heights. – _e_, burgeoning channel. On the tips, we see two arrangements of crystals, in plumes and in meshes. Gross. 100 diameters.
 
-_[Figure 1a.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ – Groupement des cristaux en mailles aux bords. Gr. 500.
+_[Figure 1a.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ – Grouping of the crystals in meshes with edges. Gr. 500.
 
 _[Figure 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig2.png)_ – Crinoïde Hahnien de la météorite de Vouillé. Gr. 50. On voit le point de départ des colonnettes ramifiées, articulées, rayonnantes, souvent un peu courbées et la zone corticale, présentant un dessin à mailles très fines et serrées. Des grains et esquilles de fer météorique sont dispersés dans la masse.
 
