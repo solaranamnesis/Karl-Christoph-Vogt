@@ -89,7 +89,7 @@ _[Figure 4.](https://cdn.solaranamnesis.com/KarlVogt/Fig4.png)_ – Crystals imi
 
 _[Figure 5.](https://cdn.solaranamnesis.com/KarlVogt/Fig5.png)_ – A crystal obtained from the Knyahinya meteorite by treatment with acids. Gr. 300. We see fractures filled by a rarified encrusting substance and on one of the ends articulated pieces affixed in a columnar arrangement.
 
-_[Figure 6.](https://cdn.solaranamnesis.com/KarlVogt/Fig6.png)_ – Esquille de Knyahinya, traitée à la potasse, ayant une disposition colonnaire et articulée. Gr. 300. Nicols croisés.
+_[Figure 6.](https://cdn.solaranamnesis.com/KarlVogt/Fig6.png)_ – Splinter from Knyahinya, treated with potash, having a columnar and articulated disposition. Gr. 300. Cross polars.
 
 _[Figure 7.](https://cdn.solaranamnesis.com/KarlVogt/Fig7.png)_ – Cristal disloqué de Knyahinya. Gr. 300. La matière incrustante pénètre partout et remplit les petits creux de la surface.
 
