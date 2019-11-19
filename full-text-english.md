@@ -97,7 +97,7 @@ _[Figure 8. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig8.png)_ – A g
 
 _[Figure 9. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig9.png)_ – Very thin section of the artificial enstatite produced by Mr. Daubrée through the fusion of peridot with iron. There is a large, almost circular, obtusely angled gap left by a removed crystal. Iron fills the interstices. Gr. 180. 
 
-_[Figure 10. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig10.png)_ – Coupe plus épaisse de la même enstatite artificielle. Gr. 180.
+_[Figure 10. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig10.png)_ – Thicker cut of the same artificial enstatite. Gr. 180.
 
 _[Figure 11. Table 3.](https://cdn.solaranamnesis.com/KarlVogt/Fig11.png)_ – Chondre transparent de la météorite de Vouillé, montrant une structure finement striée. Un morceau disloqué _c_ laisse voir la structure colonnaire. – _a_, Remplissage tubiforme d'une cassure, isolé. Gr. 100. – _b_, Extrémité du tube formé par la matière incrustante, montrant la lumière du canal. Gr. 500.
 
