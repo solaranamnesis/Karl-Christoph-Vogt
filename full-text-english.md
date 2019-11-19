@@ -87,7 +87,7 @@ _[Figure 3.](https://cdn.solaranamnesis.com/KarlVogt/Fig3.png)_ – _Pentacrinus
 
 _[Figure 4.](https://cdn.solaranamnesis.com/KarlVogt/Fig4.png)_ – Crystals imitating algae filaments in a diorite of the Leith River near Edinburgh. Gr. 180. These crystals are hexahedral prisms; the shadow of the ribbing produces in some of them longitudinal features simulating channels. In others, we see genuine medial channels with air pockets or empty bubbles arranged along the axis.
 
-_[Figure 5.](https://cdn.solaranamnesis.com/KarlVogt/Fig5.png)_ – Cristal obtenu de la météorite de Knyahinya par le traitement au moyen des acides. Gr. 300. On voit des cassures remplies par la substance incrustante raréfiée et sur l'un des bouts des piécettes articulées apposées en disposition colonnaire.
+_[Figure 5.](https://cdn.solaranamnesis.com/KarlVogt/Fig5.png)_ – A crystal obtained from the Knyahinya meteorite by treatment with acids. Gr. 300. We see fractures filled by a rarified encrusting substance and on one of the ends of the articulated pieces affixed in a columnar arrangement.
 
 _[Figure 6.](https://cdn.solaranamnesis.com/KarlVogt/Fig6.png)_ – Esquille de Knyahinya, traitée à la potasse, ayant une disposition colonnaire et articulée. Gr. 300. Nicols croisés.
 
