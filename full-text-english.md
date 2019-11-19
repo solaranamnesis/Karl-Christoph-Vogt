@@ -81,7 +81,7 @@ _[Figure 1.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ – Cross-sectio
 
 _[Figure 1a.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ – Grouping of the crystals in meshes with edges. Gr. 500.
 
-_[Figure 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig2.png)_ – Crinoïde Hahnien de la météorite de Vouillé. Gr. 50. On voit le point de départ des colonnettes ramifiées, articulées, rayonnantes, souvent un peu courbées et la zone corticale, présentant un dessin à mailles très fines et serrées. Des grains et esquilles de fer météorique sont dispersés dans la masse.
+_[Figure 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig2.png)_ – Hahnian crinoid from the Vouillé meteorite. Gr. 50. One sees the point of departure of the branched, articulated, radiating columns, often slightly curved and the cortical zone, displaying a very fine and close mesh design. Grains and splinters of meteoritic iron are dispersed throughout the mass.
 
 _[Figure 3.](https://cdn.solaranamnesis.com/KarlVogt/Fig3.png)_ – Pentacrinus europaeus. Gr. 50. Pour montrer la structure réticulée propre à toutes les pièces du squelette, composant la tige, le calice et les bras naissants.
 
