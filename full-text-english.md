@@ -85,7 +85,7 @@ _[Figure 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig2.png)_ – Hahnian crin
 
 _[Figure 3.](https://cdn.solaranamnesis.com/KarlVogt/Fig3.png)_ – _Pentacrinus europaeus_. Gr. 50. In order to point out the reticular structure specific to all the pieces of the skeleton, composing the stem, the calyx, and the budding arms.
 
-_[Figure 4.](https://cdn.solaranamnesis.com/KarlVogt/Fig4.png)_ – Crystals imitating algae filaments in a diorite of the Leith River near Edinburgh. Gr. 180. These crystals are hexahedral prisms; the shadow of the ribbing produces in some of them longitudinal features simulating channels. In others, we see genuine medial channels with air pockets or empty bubbles arranged along the axis.
+_[Figure 4.](https://cdn.solaranamnesis.com/KarlVogt/Fig4.png)_ – Crystals imitating algae filaments in a diorite of the Leith River near Edinburgh. Gr. 180. These crystals are hexahedral prisms; the shadow of the ribbing produces in some of them longitudinal features simulating channels. In others, we see genuine medial channels with pockets of air or empty bubbles arranged along the axis.
 
 _[Figure 5.](https://cdn.solaranamnesis.com/KarlVogt/Fig5.png)_ – A crystal obtained from the Knyahinya meteorite by treatment with acids. Gr. 300. We see fractures filled by a rarified encrusting substance and on one of the ends articulated pieces affixed in a columnar arrangement.
 
@@ -93,7 +93,7 @@ _[Figure 6.](https://cdn.solaranamnesis.com/KarlVogt/Fig6.png)_ – Splinter fro
 
 _[Figure 7.](https://cdn.solaranamnesis.com/KarlVogt/Fig7.png)_ – A crystal dislocated from Knyahinya. Gr. 300. The encrusting material penetrates everywhere and fills the small cavities of the surface.
 
-_[Figure 8. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig8.png)_ – Groupe de gros cristaux dans une coupe mince de la météorite de Vouillé. Gr. 180. On y voit quelques gros amas de fer météorique. La matière incrustante opaque remplit tous les interstices.
+_[Figure 8. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig8.png)_ – A group of large crystals in a thin section of the Vouillé meteorite. Gr. 180. There are some large clumps of meteoritic iron. The opaque encrusting material fills all the interstices.
 
 _[Figure 9. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig9.png)_ – Coupe très mince de l'enstatite artificielle produite par M. Daubrée par la fusion du péridot avec du fer. On y voit une grande lacune presque circulaire obtusement anguleuse, laissée par un cristal enlevé. Le fer remplit les interstices. Gr. 180.
 
