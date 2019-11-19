@@ -95,7 +95,7 @@ _[Figure 7.](https://cdn.solaranamnesis.com/KarlVogt/Fig7.png)_ – A crystal di
 
 _[Figure 8. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig8.png)_ – A group of large crystals in a thin section of the Vouillé meteorite. Gr. 180. There are some large clumps of meteoritic iron. The opaque encrusting material fills all the interstices.
 
-_[Figure 9. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig9.png)_ – Coupe très mince de l'enstatite artificielle produite par M. Daubrée par la fusion du péridot avec du fer. On y voit une grande lacune presque circulaire obtusement anguleuse, laissée par un cristal enlevé. Le fer remplit les interstices. Gr. 180.
+_[Figure 9. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig9.png)_ – Very thin section of the artificial enstatite produced by Mr. Daubrée through the fusion of peridot with iron. There is a large, almost circular, obtusely angled gap left by a removed crystal. Iron fills the interstices. Gr. 180. 
 
 _[Figure 10. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig10.png)_ – Coupe plus épaisse de la même enstatite artificielle. Gr. 180.
 
