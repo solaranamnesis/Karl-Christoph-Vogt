@@ -85,7 +85,7 @@ _[Figure 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig2.png)_ – Hahnian crin
 
 _[Figure 3.](https://cdn.solaranamnesis.com/KarlVogt/Fig3.png)_ – _Pentacrinus europaeus_. Gr. 50. In order to point out the reticular structure specific to all the pieces of the skeleton, composing the stem, the calyx, and the budding arms.
 
-_[Figure 4.](https://cdn.solaranamnesis.com/KarlVogt/Fig4.png)_ – Cristaux simulant des filaments d'algues dans une diorite de la rivière de Leith, près d'Edimbourg. Gr. 180. Ces cristaux sont des prismes hexaèdres ; l'ombre des côtes produit dans quelques-uns des traits longitudinaux simulant des canaux. Dans d'autres, on voit des véritables canaux médians avec libelle d'air ou des bulles vides rangées suivant l'axe.
+_[Figure 4.](https://cdn.solaranamnesis.com/KarlVogt/Fig4.png)_ – Crystals imitating algae filaments in a diorite of the Leith River near Edinburgh. Gr. 180. These crystals are hexahedral prisms; the shadow of the ribbing produces in some of them longitudinal features simulating channels. In others, we see genuine medial channels with air pockets or empty bubbles arranged along the axis.
 
 _[Figure 5.](https://cdn.solaranamnesis.com/KarlVogt/Fig5.png)_ – Cristal obtenu de la météorite de Knyahinya par le traitement au moyen des acides. Gr. 300. On voit des cassures remplies par la substance incrustante raréfiée et sur l'un des bouts des piécettes articulées apposées en disposition colonnaire.
 
