@@ -111,7 +111,7 @@ _[Figure 14.](https://cdn.solaranamnesis.com/KarlVogt/Fig14.png)_ – Arms of an
 
 _[Figure 15. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig15.png)_ – Columnar and parallel disposition of crystals eroded and marked by encrusting opaque material.
 
-_[Figure 16.](https://cdn.solaranamnesis.com/KarlVogt/Fig16.png)_ – Coupe mince de l'enstatite produite par M. Daubrée au moyen de la fusion de la lherzolite avec du fer. Fibres rayonnantes dans des champs circonscrits par des bâtonnets cristallins. Gr. 50.
+_[Figure 16.](https://cdn.solaranamnesis.com/KarlVogt/Fig16.png)_ – Thin section of enstatite produced by Mr. Daubrée by melting lherzolite with iron. Radiant fibers in fields circumscribed by crystalline rods. Gr. 50.
 
 _[Figure 17.](https://cdn.solaranamnesis.com/KarlVogt/Fig17.png) [et 18.](https://cdn.solaranamnesis.com/KarlVogt/Fig18.png)_ – Deux de ces bâtonnets. Gr. 500. Sur l'un de ces bâtonnets, on voit des figures ressemblant à des mamelons à pores ou à des cicatrices de feuille ; sur l'autre, des pièces ressemblant à des crampons.
 
