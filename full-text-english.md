@@ -99,9 +99,9 @@ _[Figure 9. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig9.png)_ – Ver
 
 _[Figure 10. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig10.png)_ – Thicker cut of the same artificial enstatite. Gr. 180.
 
-_[Figure 11. Table 3.](https://cdn.solaranamnesis.com/KarlVogt/Fig11.png)_ – Chondre transparent de la météorite de Vouillé, montrant une structure finement striée. Un morceau disloqué _c_ laisse voir la structure colonnaire. – _a_, Remplissage tubiforme d'une cassure, isolé. Gr. 100. – _b_, Extrémité du tube formé par la matière incrustante, montrant la lumière du canal. Gr. 500.
+_[Figure 11. Table 3.](https://cdn.solaranamnesis.com/KarlVogt/Fig11.png)_ – Transparent chondrule from the Vouillé meteorite showing a finely striated structure. A dislocated piece _c_ displays a columnar structure. – _a_, A tubiform filling of a fracture, isolated. Gr. 100. – _b_, The extremity of a tube formed by the encrusting material, bringing to light the channel. Gr. 500. 
 
-_Figures 12-15._ – Fragments de chondres de Knyahinya, traités par les acides. Gr. 300.
+_Figures 12-15._ – Fragments of chondrules from Knyahinya, treated with acids. Gr. 300.
 
 _[Figure 12 Table 1.](https://cdn.solaranamnesis.com/KarlVogt/Fig12.png)_ – Cristaux plus gros, sur lesquels sont posés d'autres cristaux plus petits.
 
