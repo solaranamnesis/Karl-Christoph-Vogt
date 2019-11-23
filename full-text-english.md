@@ -109,7 +109,7 @@ _[Figure 13.](https://cdn.solaranamnesis.com/KarlVogt/Fig13.png)_ – Portion of
 
 _[Figure 14.](https://cdn.solaranamnesis.com/KarlVogt/Fig14.png)_ – Arms of an Hahnian crinoid; articulated and branched layout.
 
-_[Figure 15. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig15.png)_ – Disposition colonnaire et parallèle de cristaux rongés et marqués par des incrustations de la matière opaque.
+_[Figure 15. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig15.png)_ – Columnar and parallel disposition of crystals eroded and marked by encrusting opaque material.
 
 _[Figure 16.](https://cdn.solaranamnesis.com/KarlVogt/Fig16.png)_ – Coupe mince de l'enstatite produite par M. Daubrée au moyen de la fusion de la lherzolite avec du fer. Fibres rayonnantes dans des champs circonscrits par des bâtonnets cristallins. Gr. 50.
 
