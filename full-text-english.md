@@ -117,6 +117,6 @@ _[Figure 17.](https://cdn.solaranamnesis.com/KarlVogt/Fig17.png) [et 18.](https:
 
 _[Figure 19](https://cdn.solaranamnesis.com/KarlVogt/Fig19.png), [20](https://cdn.solaranamnesis.com/KarlVogt/Fig20.png), [21. Tab. III.](https://cdn.solaranamnesis.com/KarlVogt/Fig21.png)_ – Groups of artificial enstatite as glaze, produced by Mr. [Stanislas-Étienne] Meunier. Gross. 500. [Fig. 19](https://cdn.solaranamnesis.com/KarlVogt/Fig19.png), Lateral articulation of the columns. Hahnian crinoid arm. [Fig. 20](https://cdn.solaranamnesis.com/KarlVogt/Fig20.png), Hahnian coral; scar of a budding channel. [Fig. 21](https://cdn.solaranamnesis.com/KarlVogt/Fig21.png), Stellar grouping.
 
-_[Figure 22.](https://cdn.solaranamnesis.com/KarlVogt/Fig22.png)_ – Fragment d'enstatite tiré d'une coupe mince du «Schillerfels» de Baste dans le Harz. Gross. 300. Disposition colonnaire et articulée rendue visible par le choc du polissage, comme dans le fragment du chondre transparent de Vouillé, Fig. 11.
+_[Figure 22.](https://cdn.solaranamnesis.com/KarlVogt/Fig22.png)_ – A fragment of enstatite drawn from a thin section of the "Schillerfels" of Baste in the Harz. Gross. 300. Columnar and articulated disposition rendered visible by the of shock of polishing, as in the fragment of the transparent chondrule from Vouillé, Figure 11.
 
-_[Figure 23.](https://cdn.solaranamnesis.com/KarlVogt/Fig23.png)_ – Groupe de cristaux dans une coupe de la météorite de Knyahinya ressemblant au produit artificiel de la fusion de la lherzolite avec le fer doux. Gr. 50.
+_[Figure 23.](https://cdn.solaranamnesis.com/KarlVogt/Fig23.png)_ – Group of crystals in a section of the Knyahinya meteorite resembling an artificial product from the melting of lherzolite with soft iron. Gross. 50.
