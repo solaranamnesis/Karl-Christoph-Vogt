@@ -103,11 +103,11 @@ _[Figure 11. Table 3.](https://cdn.solaranamnesis.com/KarlVogt/Fig11.png)_ – T
 
 _Figures 12-15._ – Fragments of chondrules from Knyahinya, treated with acids. Gr. 300.
 
-_[Figure 12 Table 1.](https://cdn.solaranamnesis.com/KarlVogt/Fig12.png)_ – Cristaux plus gros, sur lesquels sont posés d'autres cristaux plus petits.
+_[Figure 12 Table 1.](https://cdn.solaranamnesis.com/KarlVogt/Fig12.png)_ – Larger crystals, on which smaller crystals are laid out. 
 
-_[Figure 13.](https://cdn.solaranamnesis.com/KarlVogt/Fig13.png)_ – Portion d'un corail Hahnien ; disposition colonnaire articulée.
+_[Figure 13.](https://cdn.solaranamnesis.com/KarlVogt/Fig13.png)_ – Portion of an Hahnian coral; articulated columnar layout.
 
-_[Figure 14.](https://cdn.solaranamnesis.com/KarlVogt/Fig14.png)_ – Bras d'un Crinoïde Hahnien ; disposition articulée et ramifiée.
+_[Figure 14.](https://cdn.solaranamnesis.com/KarlVogt/Fig14.png)_ – Arms of an Hahnian crinoid; articulated and branched layout.
 
 _[Figure 15. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig15.png)_ – Disposition colonnaire et parallèle de cristaux rongés et marqués par des incrustations de la matière opaque.
 
