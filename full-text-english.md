@@ -89,6 +89,8 @@ In others: "Tubular corals obvious. In the original, one can clearly distinguish
 
 Corals constitute, according to the author, one twentieth of the total mass.
 
+By attentively studying the thirty figures of the so-called corals, distributed on nine tables, we can be convinced from the outset that all the figures representing entire specimens show absolutely the same general form as the Uranias, – a rounded form with well developed contours, similar to that of an entire round or oval leaf. The only difference that exists between the claimed sponges and the claimed corals is in the appearance of divergent ridges which eccentrically set themselves out from a narrow point of departure and which seem thicker and better marked in the corals. It is as one sees in the general form of the chondrules, – most of the figures give us absolutely nothing more than what we have known for a long time from the authors occupied by the meteorites. We come across, it is true, a few rare figures showing radiant streaks from several points of departure. Mr. Gümbel has already mentioned this exceptional disposition that I have also noticed in many of my cuts; we see another, designated by the name "chain coral", where on a clear rounded space there are present some obscure spots with washed-out and irregularly arranged contours. This figure resembles, as much and perhaps more, the skin of a speckled cat over that of a coral. But the author wants it to be a coral; may your will be done, my lord!
+
 ...
 
 ## Explanation of the Figures
