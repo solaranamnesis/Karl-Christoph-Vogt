@@ -85,7 +85,9 @@ Conclusions: The claimed sponges of the meteorites have neither the form nor the
 
 In other figures: "Obvious lamellar structure."
 
-In others: "Tubular corals obvious. In the original, one can clearly distinguish: glassy like intermediate masses, black tube walls, yellow tubular filling material, occasionally the latter is also black. This form occurs a hundredfold in all the chondrites. (pages 25 and 26.)
+In others: "Tubular corals obvious. In the original, one can clearly distinguish: glassy like intermediate masses, black tube walls, yellow tubular filling material, occasionally the latter is also black. This form occurs a hundredfold in all the chondrites." (pages 25 and 26.)
+
+Corals constitute, according to the author, one twentieth of the total mass.
 
 ...
 
