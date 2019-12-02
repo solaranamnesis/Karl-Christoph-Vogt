@@ -83,6 +83,10 @@ Conclusions: The claimed sponges of the meteorites have neither the form nor the
 
 "In Table 11 any researcher will easily recognize the image of living coral forms, the more so as the cup shape (cavity) is indicated in Figure 1 above. The same object also shows the cross partitions of the tubes, which clearly emerge." (Unfortunately, I fail to see in this figure any indication of a cavity, tubes, or transverse partitions.)
 
+In other figures: "Obvious lamellar structure."
+
+In others: "Tubular corals obvious. In the original, one can clearly distinguish: glassy like intermediate masses, black tube walls, yellow tubular filling material, occasionally the latter is also black. This form occurs a hundredfold in all the chondrites. (pages 25 and 26.)
+
 ...
 
 ## Explanation of the Figures
