@@ -81,6 +81,8 @@ Conclusions: The claimed sponges of the meteorites have neither the form nor the
 
 "Table 8 shows a sample image, Table 9 its channel structure: obvious bud channels that are tubular connections (for there are such). In addition, there is the curvature of the channels, which absolutely cannot be mistaken for a sheet breakage, plus there is the very clear tube openings and finally an equally clear growth site. The bud channels are 0.003 mm apart. Of course, everything you can ask for from a _Favosites_ structure."
 
+"In Table 11 any researcher will easily recognize the image of living coral forms, the more so as the cup shape (cavity) is indicated in Figure 1 above. The same object also shows the cross partitions of the tubes, which clearly emerge." (Unfortunately, I fail to see in this figure any indication of a cavity, tubes, or transverse partitions.)
+
 ...
 
 ## Explanation of the Figures
