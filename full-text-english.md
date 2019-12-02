@@ -53,7 +53,7 @@ We must therefore address the forms and special comparative structures. We must 
 
 We sequentially give a review on these claimed organisms by enumerating, with the same terms of the work, the aspects that the author attributes to different organisms which he believes to have recognized. 
 
-"A. Sponges"
+##### "A. Sponges"
 
 "1\. _Urania_"
 
@@ -75,7 +75,7 @@ The author could not have compared his _Urania_ and astro-sponges with living an
 
 Conclusions: The claimed sponges of the meteorites have neither the form nor the structure of known sponges.
 
-"B. Corals"
+##### "B. Corals"
 
 "Here we have such well-preserved terrestrial forms that not a doubt is left remaining."
 
