@@ -77,6 +77,10 @@ Conclusions: The claimed sponges of the meteorites have neither the form nor the
 
 "B. Corals"
 
+"Here we have such well-preserved terrestrial forms that not a doubt is left remaining."
+
+"Table 8 shows a sample image, Table 9 its channel structure: obvious bud channels that are tubular connections (for there are such). In addition, there is the curvature of the channels, which absolutely cannot be mistaken for a sheet breakage, plus there is the very clear tube openings and finally an equally clear growth site. The bud channels are 0.003 mm apart. Of course, everything you can ask for from a _Favosites_ structure."
+
 ...
 
 ## Explanation of the Figures
