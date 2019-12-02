@@ -75,6 +75,8 @@ The author could not have compared his _Urania_ and astro-sponges with living an
 
 Conclusions: The claimed sponges of the meteorites have neither the form nor the structure of known sponges.
 
+"B. Corals"
+
 ...
 
 ## Explanation of the Figures
