@@ -95,7 +95,7 @@ By attentively studying the thirty figures of the so-called corals, distributed 
 
 ## Explanation of the Figures
 
-_[Figure 1.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ – Cross-section of a live coral branch (_Seriatopora caliendrum_ Ehrbg.): _a_, longitudinal channel of the main branch. – _b_, _c_, _d_, cells cut at different heights. – _e_, burgeoning channel. On the tips, we see two arrangements of crystals, in plumes and in meshes. Gross. 100 diameters.
+_[Figure 1.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ – Cross-section of a live coral branch (_Seriatopora caliendrum_ Ehrenberg): _a_, longitudinal channel of the main branch. – _b_, _c_, _d_, cells cut at different heights. – _e_, burgeoning channel. On the tips, we see two arrangements of crystals, in plumes and in meshes. Gross. 100 diameters.
 
 _[Figure 1a.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ – Grouping of the crystals in meshes with edges. Gross. 500.
 
