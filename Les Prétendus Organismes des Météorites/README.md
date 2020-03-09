@@ -5,4 +5,4 @@ Attempt at a translation of Dr. Karl (Carl) Christoph Vogt's 1882 work: "Les Pr√
 [English - Plain Text](full-text-english.md)  
 English - PDF  
 [French - Plain Text](full-text-french.md)  
-French - PDF  
+[French - PDF](https://solaranamnesis.b-cdn.net/KarlVogt/vogt_les_pretendus_french_PDFlaTex.pdf)  
