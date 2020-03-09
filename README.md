@@ -9,4 +9,4 @@ Attempt at a translation of Dr. Karl (Carl) Christoph Vogt's 1882 work: "Les Pr�
 [English - Plain Text](Les%20Prétendus%20Organismes%20des%20Météorites/full-text-english.md)  
 English - PDF  
 [French - Plain Text](Les%20Prétendus%20Organismes%20des%20Météorites/full-text-french.md)  
-French - PDF  
+[French - PDF](https://solaranamnesis.b-cdn.net/KarlVogt/vogt_les_pretendus_french_PDFlaTex.pdf)  
