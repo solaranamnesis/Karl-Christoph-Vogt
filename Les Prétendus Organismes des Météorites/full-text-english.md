@@ -95,6 +95,8 @@ The structure stands out above all in the two figures photographed under high ma
 
 If it is already now astonishing, that among these numerous figures, compared sometimes to the _Favosites_ of the Silurian, at other times to crateriform, star or even chain corals, _there is not one to be found that displays a general form different from the claimed Uranias_, our astonishment increases even more if we compare the structures (not described, because Mr. Hahn does not give descriptions, but depicted) to those which we know of living corals or well-characterized fossils. Very reckless indeed, one who would like to find in the figures of Mr. Hahn something analogous to the figure that we give of a piece of a section of a branch of _Syringopora caliendrum_ (Ehrenberg), which has been oblingingly borrowed from our colleague Mr. Th. Studer, professor in Bern, and which gives the ideal section of star corals, cup corals, maze corals, _Fungia_, _Tubipora_ and _Favosites_ in our possession because it summarizes, essentially, the modifications of structure that can be found among other corals. This section ([Fig. 1](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)) indeed shows a branch of coral cut longitudinally. The section traverses broad areas encompassed by a thicker skeleton and fine tips, faded down to the most complete transparency.
 
+"The microscopic structure of Madreporarie skeletons", says Mr. Zittel (_Palaeontology_, p. 206), "is very uniformly fibro-crystalline. The small fibers that outwardly radiate from the centers of crystallization form star-like patterns, similar to feathers."
+
 ...
 
 ## Explanation of the Figures
