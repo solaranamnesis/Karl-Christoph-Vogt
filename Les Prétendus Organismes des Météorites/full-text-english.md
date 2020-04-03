@@ -97,6 +97,8 @@ If it is already now astonishing, that among these numerous figures, compared so
 
 "The microscopic structure of cup coral skeletons", says Mr. Zittel (_Palaeontology_, p. 206), "is very uniformly fibro-crystalline. The small fibers that outwardly radiate from the centers of crystallization form star-like patterns, similar to feathers."
 
+The skeleton of Anthozoan polyparies displays, as a matter of fact, a microscopic structure that, in the majority of cases, is plainly crystalline. A tube or a branch of coral is not simply a piece of solid limestone, pierced along its axis by a roundish central channel or divided by partitions, like Mr. Hahn presents; the branch is always composed of a multitude of tiny crystalline pieces, assembled in a specific order. 
+
 ...
 
 ## Explanation of the Figures
