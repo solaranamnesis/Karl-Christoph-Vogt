@@ -103,31 +103,31 @@ The skeleton of Anthozoan polyparies displays, as a matter of fact, a microscopi
 
 ## Explanation of the Figures
 
-_[Figure 1.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ – Cross-section of a real coral branch (_Seriatopora caliendrum_ Ehrenberg): _a_, longitudinal channel of the main branch. – _b_, _c_, _d_, cells cut at different heights. – _e_, burgeoning channel. On the tips, we see two arrangements of crystals, in plumes and in meshes. Gross. 100 diameters.
+_[Figure 1.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ – Cross-section of a real coral branch (_Seriatopora caliendrum_ Ehrenberg): _a_, longitudinal channel of the main branch. – _b_, _c_, _d_, cells cut at different heights. – _e_, burgeoning channel. On the tips, we see two arrangements of crystals, in plumes and in meshes. Magnification 100 diameters.
 
-_[Figure 1a.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ – Grouping of the crystals in meshes with edges. Gross. 500.
+_[Figure 1a.](https://cdn.solaranamnesis.com/KarlVogt/Fig1.png)_ – Grouping of the crystals in meshes with edges. Magnification 500.
 
-_[Figure 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig2.png)_ – Hahnian crinoid from the Vouillé meteorite. Gross. 50. One sees the point of departure of the branched, articulated, radiating columns, often slightly curved and the cortical zone, displaying a very fine and close mesh design. Grains and splinters of meteoritic iron are dispersed throughout the mass.
+_[Figure 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig2.png)_ – Hahnian crinoid from the Vouillé meteorite. Magnification 50. One sees the point of departure of the branched, articulated, radiating columns, often slightly curved and the cortical zone, displaying a very fine and close mesh design. Grains and splinters of meteoritic iron are dispersed throughout the mass.
 
-_[Figure 3.](https://cdn.solaranamnesis.com/KarlVogt/Fig3.png)_ – _Pentacrinus europaeus_. Gross. 50. In order to point out the reticular structure specific to all the pieces of the skeleton, composing the stem, the calyx, and the budding arms.
+_[Figure 3.](https://cdn.solaranamnesis.com/KarlVogt/Fig3.png)_ – _Pentacrinus europaeus_. Magnification 50. In order to point out the reticular structure specific to all the pieces of the skeleton, composing the stem, the calyx, and the budding arms.
 
-_[Figure 4.](https://cdn.solaranamnesis.com/KarlVogt/Fig4.png)_ – Crystals imitating algae filaments in a diorite of the Leith River near Edinburgh. Gross. 180. These crystals are hexahedral prisms; the shadow of the ribbing produces in some of them longitudinal features simulating channels. In others, we see genuine medial channels with pockets of air or empty bubbles arranged along the axis.
+_[Figure 4.](https://cdn.solaranamnesis.com/KarlVogt/Fig4.png)_ – Crystals imitating algae filaments in a diorite of the Leith River near Edinburgh. Magnification 180. These crystals are hexahedral prisms; the shadow of the ribbing produces in some of them longitudinal features simulating channels. In others, we see genuine medial channels with pockets of air or empty bubbles arranged along the axis.
 
-_[Figure 5.](https://cdn.solaranamnesis.com/KarlVogt/Fig5.png)_ – A crystal obtained from the Knyahinya meteorite by treatment with acids. Gross. 300. We see fractures filled by a rarified encrusting substance and on one of the ends articulated pieces affixed in a columnar arrangement.
+_[Figure 5.](https://cdn.solaranamnesis.com/KarlVogt/Fig5.png)_ – A crystal obtained from the Knyahinya meteorite by treatment with acids. Magnification 300. We see fractures filled by a rarified encrusting substance and on one of the ends articulated pieces affixed in a columnar arrangement.
 
-_[Figure 6.](https://cdn.solaranamnesis.com/KarlVogt/Fig6.png)_ – Splinter from Knyahinya, treated with potash, having a columnar and articulated disposition. Gross. 300. Crossed Nicols.
+_[Figure 6.](https://cdn.solaranamnesis.com/KarlVogt/Fig6.png)_ – Splinter from Knyahinya, treated with potash, having a columnar and articulated disposition. Magnification 300. Crossed Nicols.
 
-_[Figure 7.](https://cdn.solaranamnesis.com/KarlVogt/Fig7.png)_ – A crystal dislocated from Knyahinya. Gross. 300. The encrusting material penetrates everywhere and fills the small cavities of the surface.
+_[Figure 7.](https://cdn.solaranamnesis.com/KarlVogt/Fig7.png)_ – A crystal dislocated from Knyahinya. Magnification 300. The encrusting material penetrates everywhere and fills the small cavities of the surface.
 
-_[Figure 8. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig8.png)_ – A group of large crystals in a thin section of the Vouillé meteorite. Gross. 180. There are some large clumps of meteoritic iron. The opaque encrusting material fills all the interstices.
+_[Figure 8. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig8.png)_ – A group of large crystals in a thin section of the Vouillé meteorite. Magnification 180. There are some large clumps of meteoritic iron. The opaque encrusting material fills all the interstices.
 
-_[Figure 9. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig9.png)_ – Very thin section of the artificial enstatite produced by Mr. Daubrée through the fusion of peridot with iron. There is a large, almost circular, obtusely angled gap left by a removed crystal. Iron fills the interstices. Gross. 180. 
+_[Figure 9. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig9.png)_ – Very thin section of the artificial enstatite produced by Mr. Daubrée through the fusion of peridot with iron. There is a large, almost circular, obtusely angled gap left by a removed crystal. Iron fills the interstices. Magnification 180. 
 
-_[Figure 10. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig10.png)_ – Thicker cut of the same artificial enstatite. Gross. 180.
+_[Figure 10. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig10.png)_ – Thicker cut of the same artificial enstatite. Magnification 180.
 
-_[Figure 11. Table 3.](https://cdn.solaranamnesis.com/KarlVogt/Fig11.png)_ – Transparent chondrule from the Vouillé meteorite showing a finely striated structure. A dislocated piece _c_ displays a columnar structure. – _a_, A tubiform filling of a fracture, isolated. Gross. 100. – _b_, The extremity of a tube formed by the encrusting material, bringing to light the channel. Gross. 500. 
+_[Figure 11. Table 3.](https://cdn.solaranamnesis.com/KarlVogt/Fig11.png)_ – Transparent chondrule from the Vouillé meteorite showing a finely striated structure. A dislocated piece _c_ displays a columnar structure. – _a_, A tubiform filling of a fracture, isolated. Magnification 100. – _b_, The extremity of a tube formed by the encrusting material, bringing to light the channel. Magnification 500. 
 
-_Figures 12-15._ – Fragments of chondrules from Knyahinya, treated with acids. Gross. 300.
+_Figures 12-15._ – Fragments of chondrules from Knyahinya, treated with acids. Magnification 300.
 
 _[Figure 12 Table 1.](https://cdn.solaranamnesis.com/KarlVogt/Fig12.png)_ – Larger crystals, on which smaller crystals are laid out. 
 
@@ -137,12 +137,12 @@ _[Figure 14.](https://cdn.solaranamnesis.com/KarlVogt/Fig14.png)_ – Arms of an
 
 _[Figure 15. Table 2.](https://cdn.solaranamnesis.com/KarlVogt/Fig15.png)_ – Columnar and parallel disposition of crystals eroded and marked by encrusting opaque material.
 
-_[Figure 16.](https://cdn.solaranamnesis.com/KarlVogt/Fig16.png)_ – Thin section of enstatite produced by Mr. Daubrée by melting lherzolite with iron. Radiant fibers in fields circumscribed by crystalline rods. Gross. 50.
+_[Figure 16.](https://cdn.solaranamnesis.com/KarlVogt/Fig16.png)_ – Thin section of enstatite produced by Mr. Daubrée by melting lherzolite with iron. Radiant fibers in fields circumscribed by crystalline rods. Magnification 50.
 
-_[Figure 17.](https://cdn.solaranamnesis.com/KarlVogt/Fig17.png) [and 18.](https://cdn.solaranamnesis.com/KarlVogt/Fig18.png)_ – Two of these rods. Gross. 500. On one of these rods one sees figures resembling pore protuberances or lamina scars; on the other, pieces resembling crampons.
+_[Figure 17.](https://cdn.solaranamnesis.com/KarlVogt/Fig17.png) [and 18.](https://cdn.solaranamnesis.com/KarlVogt/Fig18.png)_ – Two of these rods. Magnification 500. On one of these rods one sees figures resembling pore protuberances or lamina scars; on the other, pieces resembling crampons.
 
-_[Figure 19](https://cdn.solaranamnesis.com/KarlVogt/Fig19.png), [20](https://cdn.solaranamnesis.com/KarlVogt/Fig20.png), [21. Table III.](https://cdn.solaranamnesis.com/KarlVogt/Fig21.png)_ – Groups of artificial enstatite as glaze, produced by Mr. [Stanislas-Étienne] Meunier. Gross. 500. [Figure 19](https://cdn.solaranamnesis.com/KarlVogt/Fig19.png), Lateral articulation of the columns. Hahnian crinoid arm. [Figure 20](https://cdn.solaranamnesis.com/KarlVogt/Fig20.png), Hahnian coral; scar of a budding channel. [Figure 21](https://cdn.solaranamnesis.com/KarlVogt/Fig21.png), Stellar grouping.
+_[Figure 19](https://cdn.solaranamnesis.com/KarlVogt/Fig19.png), [20](https://cdn.solaranamnesis.com/KarlVogt/Fig20.png), [21. Table III.](https://cdn.solaranamnesis.com/KarlVogt/Fig21.png)_ – Groups of artificial enstatite as glaze, produced by Mr. [Stanislas-Étienne] Meunier. Magnification 500. [Figure 19](https://cdn.solaranamnesis.com/KarlVogt/Fig19.png), Lateral articulation of the columns. Hahnian crinoid arm. [Figure 20](https://cdn.solaranamnesis.com/KarlVogt/Fig20.png), Hahnian coral; scar of a budding channel. [Figure 21](https://cdn.solaranamnesis.com/KarlVogt/Fig21.png), Stellar grouping.
 
-_[Figure 22.](https://cdn.solaranamnesis.com/KarlVogt/Fig22.png)_ – A fragment of enstatite drawn from a thin section of the "Schillerfels" of Baste in the Harz. Gross. 300. Columnar and articulated disposition rendered visible by the of shock of polishing, as in the fragment of the transparent chondrule from Vouillé, Figure 11.
+_[Figure 22.](https://cdn.solaranamnesis.com/KarlVogt/Fig22.png)_ – A fragment of enstatite drawn from a thin section of the "Schillerfels" of Baste in the Harz. Magnification 300. Columnar and articulated disposition rendered visible by the of shock of polishing, as in the fragment of the transparent chondrule from Vouillé, Figure 11.
 
-_[Figure 23.](https://cdn.solaranamnesis.com/KarlVogt/Fig23.png)_ – Group of crystals in a section of the Knyahinya meteorite resembling an artificial product from the melting of lherzolite with soft iron. Gross. 50.
+_[Figure 23.](https://cdn.solaranamnesis.com/KarlVogt/Fig23.png)_ – Group of crystals in a section of the Knyahinya meteorite resembling an artificial product from the melting of lherzolite with soft iron. Magnification 50.
