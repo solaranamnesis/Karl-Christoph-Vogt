@@ -101,6 +101,8 @@ The skeleton of Anthozoan polyparies displays, as a matter of fact, a microscopi
 
 Yet, this structure so characteristic with its crystalline elements of multi-faceted form, but constant in every specie, is completely lacking in the claimed corals of Mr. Hahn, shots of chondrules. We posses before our eyes a thin section with chondrules, which represent this author's corals; the object is composed of rods or small solid columns, radiating from an eccentric center (attachment point for Mr. Hahn), occassionally dichotomized at very acute angles, separated from one another by an opaque incrusting mass, which has infiltrated the transverse fractures or superficial chips, simulating thereby a longitudinal series of pits and grooves.
 
+There is therefore not a single similarity between the claimed corals of Mr. Hahn and genuine corals, such as we know them from the various formations in the most ancient strata of the Earth.
+
 ...
 
 ## Explanation of the Figures
