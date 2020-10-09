@@ -103,7 +103,7 @@ Yet, this structure so characteristic with its crystalline elements of multi-fac
 
 There is therefore not a single similarity between the claimed corals of Mr. Hahn and genuine corals, such as we know them from the various formations in the most ancient strata of the Earth. There is not even a similitude with the external forms, because the tubiform cells of _Favosites_ are distinctly polygonal and pierced by holes on their wall, and the entire polyp is either loosely branched or very organized in a thick mass. 
 
-We arrive at the final class, representing, according to Mr. Hahn, most of the chondrules of the meteorites and that they themselves make up, according to the author, sixteen-twenthieths of the total mass. It is the class or even, if you will, the phylum of Echinoderms, represented by the crinoids.
+We arrive at the final class, representing, according to Mr. Hahn, most of the chondrules of the meteorites and that they themselves make up, according to the author, sixteen-twenthieths of the total mass. It is the class or even, if you will, the phylum of Echinoderms, represented by the crinoids. Studied with preference by our author, this type did not provide fewer than sixty-six figures.
 
 ...
 
