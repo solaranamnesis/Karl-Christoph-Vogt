@@ -107,7 +107,7 @@ We arrive at the final class, representing, according to Mr. Hahn, most of the c
 
 ##### "C. Crinoids"
 
-"They are found from the most simple form of an articulated arm to until complete crinoids with stem (we have searched in vain for a stem in the figures), with calyx, main and auxiliary arms. The conservation is ordinarily good. The difficulty comes with the thousands of directions of the cut that always result in different images of the same object.
+"They are found from the most simple form of an articulated arm to complete crinoids with stem (we have searched in vain for a stem in the figures), with calyx, main and auxiliary arms. The conservation is ordinarily good. The difficulty comes with the thousands of directions of the cut that always result in different images of the same object.
 
 ...
 
