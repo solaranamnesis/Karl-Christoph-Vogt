@@ -105,7 +105,12 @@ There is therefore not a single similarity between the claimed corals of Mr. Hah
 
 We arrive at the final class, representing, according to Mr. Hahn, most of the chondrules of the meteorites and that themselves make up, according to the author, sixteen-twenthieths of the total mass. It is the class or even, if you will, the phylum of Echinoderms, represented by the crinoids. Studied with preference by our author, this type did not provide fewer than sixty-six figures. Here, we will undoubtedly come across a more ample yield of facts and observations. The structure of the crinoids is complicated; their forms are quite varied; study offers plenty of difficulties, on which the sagacity of the observer can be applied. Given the multitude of specimens found within the meteorite of Knyahinya alone, the bottom of the planetary sea, from which the aerolites originate, must have resembled a submarine crinoid forest, an occurrence known from the dredging of modern expeditions.
 
+##### "C. Crinoids"
+
+"They are found from the most simple form of an articulated arm to until complete crinoids with stem (we have searched in vain for a stem in the figures), with calyx, main and auxiliary arms. The conservation is ordinarily good. The difficulty comes with the thousands of directions of the cut that always result in different images of the same object.
+
 ...
+
 
 ## Explanation of the Figures
 
