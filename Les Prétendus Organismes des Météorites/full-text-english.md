@@ -113,6 +113,8 @@ I believe that I have omitted nothing in my report of the observations on the fo
 
 We admit that it is very meager. A few assertions without any proof.
 
+As I already hinted in my talk about the facts of the sponges and corals, the author does not present any comparison, even superficial, with the structure of other living or fossil organisms belonging to the same class.
+
 ...
 
 ## Explanation of the Figures
