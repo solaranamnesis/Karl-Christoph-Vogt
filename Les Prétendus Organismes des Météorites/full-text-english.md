@@ -115,7 +115,7 @@ We admit that it is very meager. A few assertions without any proof.
 
 As I already hinted in my talk about the facts of the sponges and corals, the author does not present any comparison, even superficial, with the structure of other living or fossil organisms belonging to the same class. Mr. Hahn contents himself with the most crude resemblance. As a matter of fact, the objects in the figures resemble crinoids like a leaf of the _Sabal_ or _Chamaerops_ resembles a fan. That is all.
 
-We could speak at length if we wanted to get into an itemized critique of the numerous figures photographed by the author. Thus, for all the figures of Table 29, this is how they will be taken by all observers who have been occupied by research on thin sections of rocks: as assemblages of more or less acicular crystals, assembled in the highly common form of asterisks grouped around different centers, such as we are used to seeing, for example, in the actinoliths.
+We could speak at length if we wanted to get into an itemized critique of the numerous figures photographed by the author. Thus, for all the figures of Table 29, this is how they will be taken by all observers who have been occupied by research on thin sections of rocks: as assemblages of more or less acicular crystals, assembled in the highly common form of asterisks grouped around different centers, such as we are used to seeing, for example, in the actinoliths. The majority of the figures in the following plate will not contradict this diagnosis. 
 
 ...
 
