@@ -117,6 +117,8 @@ As I already hinted in my talk about the facts of the sponges and corals, the au
 
 We could speak at length if we wanted to get into an itemized critique of the numerous figures photographed by the author. So, for all the figures of Table 29, this is how they will be taken by all observers who have been occupied by research on thin sections of rocks: as assemblages of more or less acicular crystals, assembled in the highly common form of asterisks grouped around different centers, such as we are used to seeing, for example, in the actinoliths. The majority of the figures in the following plate will not contradict this diagnosis. The other figures, such as those of Tables 17 and 28, do not display any resemblance, neither remote nor rough, with a part or section of a crinoid; as for the other figures, that is to say (Table 19), cuts of large poorly defined crystals with worn out corners and traversed by channeled breaks in all directions, they are boldly granted to us as the panels of the calyx of a crinoid, whose arms resolve themselves immediately, without transition, into a mass of secondary rays.
 
+We may apply to all these claimed crinoids the same remarks we have already made about the corals.
+
 ...
 
 ## Explanation of the Figures
