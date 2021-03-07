@@ -119,7 +119,10 @@ We could speak at length if we wanted to get into an itemized critique of the nu
 
 We may apply to all these claimed crinoids the same remarks we have already made about the corals. _All of them, as they are a whole, possess precisely the same form in rounded sheets, like the corals, like the Uranias._ We could copy exactly the contours of the _Urania_ sponge and apply them to a coral, to a crinoid, without having the need for the slightest alteration. We present a figure of a Hahnian crinoid ([Fig. 2](https://cdn.solaranamnesis.com/KarlVogt/Fig2.png)), drawn from a distinct chamber in a thin section of the Vouillé meteorite, which Mr. Daubrée has permitted us to use with his habitual helpfulness. This figure is even more complete than any of the figures photographed in such large numbers by Mr. Hahn, – were we observe exactly the same rounded leaf form. However, admittedly, we are not in any way certain if our determination is right, – is it an _Urania_, a coral, a crinoid? We willingly leave the choice to the reader, – what we are certain of, in any event, is that this is a section of a complete chondrule, within which are embedded fragments of meteoritic iron in places. 
 
+Surely, none of the figures produced by Mr. Hahn correspond with the exterior likeness of crinoids, as we know them.
+
 ...
+
 
 ## Explanation of the Figures
 
