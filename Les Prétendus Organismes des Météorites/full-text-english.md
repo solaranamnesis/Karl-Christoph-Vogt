@@ -121,6 +121,8 @@ We may apply to all these claimed crinoids the same remarks we have already made
 
 Surely, none of the figures produced by Mr. Hahn correspond with the exterior likeness of crinoids, as we know them. Does the general order of the body correspond better? One is permitted to be in doubt. Except in a single case, none of these meteoritic crinoids obey the general law, which establishes the number of five branches for animals of this class. Just a few rare cystoids present exceptions to this rule in that they have a number of reduced arms always not very developed, simple, without branchings, so barely apparent that their existence was denied for a long time. With the crinoids of Knyahinya, on the contrary, what a plush growth of arms, branched to excess, in number as considerable as one wishes! The few genuine crinoid fossils with six arms (_Hexacrinus_, _Atocrinus_) are so rare, so similar to adjacent genera, that the majority of authors deem them as monstrosities. But they may not be compared in any way with those Briareus who fell to Earth and who were likely rushed, because they came into overt rebellion against the law established for terrestrial creations.  
 
+The general form leaves us with shortcomings, the order of the parts of the body eludes us, – we are thus required to secure the inner, microscopic structure of these beings, devoid of stems and calyxes, and supplied with an infinite number of arms overly branched, which, above all, are not arms and would have been very awkward, according to all appearances, for accommodating the organs necessary for life, that is, if they had been alive.   
+
 ...
 
 ## Explanation of the Figures
