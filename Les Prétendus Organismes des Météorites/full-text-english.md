@@ -123,6 +123,8 @@ Surely, none of the figures produced by Mr. Hahn correspond with the exterior li
 
 The general form leaves us with shortcomings, the order of the parts of the body eludes us, – we are thus required to secure the inner, microscopic structure of these beings, devoid of stems and calyxes, and supplied with an infinite number of arms overly branched, which, above all, are not arms and would have been very awkward, according to all appearances, for accommodating the organs necessary for life, that is, if they had been alive.   
 
+The microscopic structure of the calcareous parts of Echinoderm skeletons is easy to identify. It is a consistent fact that all of these parts, whatever they are, plates, pieces of stems, arms, cirri, or pinnules, always possess a reticulated structure, with narrow lattices more or less perforated, structure which manifests as early as the formation of the skeleton in the juveniles and maintains itself up into adult age. 
+
 ...
 
 ## Explanation of the Figures
