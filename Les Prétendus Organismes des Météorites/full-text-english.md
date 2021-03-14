@@ -131,7 +131,7 @@ Yet, nothing, absolutely nothing of this structure shows up in the figures of Mr
 
 I frankly confess that this absolute absence of comparative investigation regarding the identified animals, living or fossil, and this complete absence of the known properties of microscopic structure, such as can be found in types of highly organized skeletal parts like the echinoderms, inspired in me the foremost doubt about the validity of the conclusions that Mr. Hahn drew from his laborious observations.
 
-It appears that one of Mr. Hahn's defenders, his friend Mr. Weinland, a zoologist, has completely abandoned the "so-called crinoids" of his friend "that he is not able to follow everywhere the zoological determinations" (Das Ausland, N. 26, 1881).
+It appears that one of Mr. Hahn's defenders, his friend Mr. Weinland, a zoologist, has completely abandoned the "so-called crinoids" of his friend "which he is not able to follow everywhere the zoological determinations" (Das Ausland, N. 26, 1881).
 
 ...
 
