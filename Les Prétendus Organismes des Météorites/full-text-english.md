@@ -129,6 +129,8 @@ As an example of this structure, I provide a figure of the _Pentacrinus europaeu
 
 Yet, nothing, absolutely nothing of this structure shows up in the figures of Mr. Hahn. What he likes to refer to under the title of "reticulated structure" (Tab. 30, Fig. 6; Tab. 21, Fig. 5) does not in any way look like the lattice structure of echinoderm parts, but instead like super small crystals, cut obliquely and arranged in tiers. Mr. Hahn thinks he has found a "remarkable" resemblance with the schreibersite of meteoric irons that might, with help from the imagination, morph into an organism. However, neither the arms of any of these claimed crinoids, nor, above all, the colossal plates making up the so-called calyx of one of these crinoids, figured in Table 19 and which are nothing else other than a crystal traversed by breaks filled in with an opaque substance, display any trace of the characteristic structure of crinoid skeletal parts.
 
+I frankly confess that this absolute absence of comparative investigation regarding the identified animals, living or fossil, and this complete absence of the known properties of microscopic structure, such as can be found in types of highly organized skeletal parts like the echinoderms, inspired in me the foremost doubt about the validity of the conclusions that Mr. Hahn drew from his laborious observations.
+
 ...
 
 ## Explanation of the Figures
