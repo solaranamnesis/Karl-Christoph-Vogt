@@ -137,6 +137,8 @@ I was talking of my doubts. They were compounded when I discovered, permit me to
 
 I am wrong. Mr. Hahn formulates these transpositions, in one of the most unusual chapters that has been written in our time, such that we do not know what to admire most: the complete ignorance of the author with the laws of evolution or the audacity with which he states his views – in terms worthy of the oracle of Delphi. In effect, our author demonstrates "the unitary type of all the meteoritic organisms." Sponges, corals, crinoids are of a unified type! The forms develop one from another. I quote verbatim: "It is certain that _Urania_ is the simplest form. But, this form is the starting point for the others."
 
+"The semicircular flap subdivides into layers, the layers into tubes, the tubes themselves are cross partitioned. The arms maintain their form, reuniting through a channel. A calyx forms between the arms and the stalk's attachment point and the simplest crinoid is there!" Really, it is seriously as simple as that!
+
 ...
 
 ## Explanation of the Figures
