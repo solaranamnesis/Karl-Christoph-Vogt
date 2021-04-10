@@ -139,6 +139,8 @@ I am wrong. Mr. Hahn formulates these transpositions, in one of the most unusual
 
 "The semicircular flap subdivides into layers, the layers into tubes, the tubes themselves are cross partitioned. The arms maintain their form, reuniting through a channel. A calyx forms between the arms and the stalk's attachment point and the simplest crinoid is there!" Really, it is seriously as simple as that!
 
+There is, however, an element of truth within that singular statement.
+
 ...
 
 ## Explanation of the Figures
