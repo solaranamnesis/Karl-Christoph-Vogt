@@ -141,6 +141,8 @@ I am wrong. Mr. Hahn formulates these transpositions, in one of the most unusual
 
 There is, however, an element of truth within that singular statement. All the organisms of Mr. Hahn proceed in effect from a similar type, however it is far from being organic. I will return to this subject, demonstrating that the term "organic structure", which Mr. Hahn and his friends have truly abused through usage, is a term entirely meaningless when employed in general and applied to all the forms without exception and that it can only be employed by applying it to a determined and known object. One can say: such a structure is identical to this one from the sponges, from the corals, from the crinoids, consequently it is organic: one may not say: such an object has an organic or inorganic structure, because from one aspect the bodies created by the organisms, like the polypiers of the corals, are not composed of anything but crystals and from another aspect absolutely inorganic bodies may lead to forms impossible to distinguish from organic formations.
 
+And, I as have come to show, the claimed organisms of Mr. Hahn are not in any way the structure of the animals to which he connects them; so we may say that the positive proof is not provided.
+
 ...
 
 ## Explanation of the Figures
