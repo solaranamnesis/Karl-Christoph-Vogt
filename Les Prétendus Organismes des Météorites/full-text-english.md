@@ -143,6 +143,8 @@ There is, however, an element of truth within that singular statement. All the o
 
 And, I as have come to show, the claimed organisms of Mr. Hahn are not in any way the structure of the animals to which he connects them; so we may say that the positive proof is not provided.
 
+With a lack of positive proofs, Mr. Hahn sought to accumulate a certain number of so-called negative proofs, which may be summarized in the following manner: the forms that I have described and displayed cannot originate from inorganic bodies, thus they are organic.
+
 ...
 
 ## Explanation of the Figures
