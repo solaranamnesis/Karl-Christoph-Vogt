@@ -145,6 +145,8 @@ And, I as have come to show, the claimed organisms of Mr. Hahn are not in any wa
 
 With a lack of positive proofs, Mr. Hahn sought to accumulate a certain number of so-called negative proofs, which may be summarized in the following manner: the forms that I have described and displayed cannot originate from inorganic bodies, thus they are organic.
 
+We are not going to follow in pursuit of Mr. Hahn in these generalizations which, as we have just said, are in themselves meaningless; we will investigate the details, by studying the facts provided by observation, in order to arrive afterwards at general conclusions.
+
 ...
 
 ## Explanation of the Figures
