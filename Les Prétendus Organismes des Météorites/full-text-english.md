@@ -147,6 +147,8 @@ With a lack of positive proofs, Mr. Hahn sought to accumulate a certain number o
 
 We are not going to follow in pursuit of Mr. Hahn in these generalizations which, as we have just said, are in themselves meaningless; we will investigate the details, by studying the facts provided by observation, in order to arrive afterwards at general conclusions.
 
+Mr. Hahn examined nineteen meteorites. It is that of Knyahinya (June 9, 1866) that supplied the greater part of his material. His collection of 360 thin sections must be, if we are to believe Mr. Weinland, the most magnificent collection in the world.
+
 ...
 
 ## Explanation of the Figures
