@@ -149,6 +149,8 @@ We are not going to follow in pursuit of Mr. Hahn in these generalizations which
 
 Mr. Hahn examined nineteen meteorites. It is that of Knyahinya (June 9, 1866) that supplied the greater part of his material. His collection of 360 thin sections must be, if we are to believe Mr. Weinland, the most magnificent collection in the world. We will gladly trust him. Save a few exceptions, which give no new type from the rest, all the figures of the publication in question represent claimed organisms of Knyahinya. A sole fragment of that fall has provided this multitude of forms, which Mr. Hahn estimates at several hundred. It is with much delight, no doubt, that in a single stone so many forms can be found combined together. We otherwise terrestrial paleontologists are not so fortunate.
 
+The analysis method, followed by Mr. Hahn and his friends, is still the same very well-known for a long time; thin sections are made and observed with a microscope.
+
 ...
 
 ## Explanation of the Figures
