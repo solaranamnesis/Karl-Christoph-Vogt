@@ -153,6 +153,8 @@ The analysis method, followed by Mr. Hahn and his friends, is still the same ver
 
 "I deliberately made," says Mr. Hahn, "the cuts in three thicknesses; not very translucent, in order to have the included bodies as complete as possible; very thin, in order to see the structure clearly; the majority of it in such a way that both views were obtained."
 
+"I add here a remark, which will be confirmed by everyone who has dealt with thin sections of petrifaction."
+
 ...
 
 ## Explanation of the Figures
