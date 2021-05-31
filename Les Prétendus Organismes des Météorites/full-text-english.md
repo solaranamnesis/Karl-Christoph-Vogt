@@ -151,6 +151,8 @@ Mr. Hahn examined nineteen meteorites. It is that of Knyahinya (June 9, 1866) th
 
 The analysis method, followed by Mr. Hahn and his friends, is still the same very well-known for a long time; thin sections are made and observed with a microscope.
 
+"I deliberately made," says Mr. Hahn, "the cuts in three thicknesses; not very translucent, in order to have the included bodies as complete as possible; very thin, in order to see the structure clearly; the majority of it in such a way that both views were obtained."
+
 ...
 
 ## Explanation of the Figures
