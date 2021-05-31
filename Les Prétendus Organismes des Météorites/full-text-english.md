@@ -155,6 +155,8 @@ The analysis method, followed by Mr. Hahn and his friends, is still the same ver
 
 "I add here a remark, which will be confirmed by everyone who has dealt with thin sections of petrifaction."
 
+"It is only in rare cases that the structure remains visible on sections perfectly transparent and consequently very thin. The observer with a microscope is in the supreme degree delighted by the beautiful forms and lines which one sees in the semi-transparent section. In joy, one will wish to do even better and expects, continuing to grind their section, to see a perfect image. But when one puts the section under the microscope for the second time, nothing is seen but an almost structureless area, with forms barely showing, uncertain in their contours, which no longer allow one to recognize under the microscope that which was seen a moment before under the magnifying glass. However, this phenomenon is in connection with the metamorphosis of rocks and the forms that are included in them. The matter is moreover well-known and does not need more special details." (pg. 16 and 17)
+
 ...
 
 ## Explanation of the Figures
