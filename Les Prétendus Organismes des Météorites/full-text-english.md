@@ -159,7 +159,7 @@ The analysis method, followed by Mr. Hahn and his friends, is still the same ver
 
 I confess that my experience comes to the contrary conclusion. On the semi-transparent sections I only see confusing things and it is on very thin and very transparent sections that I see the details of the structure. I will revisit this subject in the remaining part.
 
-In my investigations, enterprises with the aim of convincing myself of the existence of organisms in the meteorites, I necessarily had to address myself to the chondrites and especially the chondrules themselves, which form the greatest portion of them. For Mr. Hahn the chondrites are, as we have said, a "felt of organisms" and crystals constitute rare exceptions.
+In my investigations, enterprises with the aim of convincing myself of the existence of organisms in the meteorites, I necessarily had to apply myself to the chondrites and especially the chondrules themselves, which form the greatest portion of them. For Mr. Hahn the chondrites are, as we have said, a "felt of organisms" and crystals constitute rare exceptions.
 
 ...
 
