@@ -171,6 +171,8 @@ I should quote here a strange fact. Mr. Gümbel aslo studied the carbonaceous me
 
 In his ardor to find partisans, Mr. Hahn cited this phrase in the following manner: "Mr. Gümbel ends with a description of the Kaba meteorite: "Perhaps, however, it is still be possible to prove the existence of organic beings on celestial bodies outside of the Earth." "I hope," adds Mr. Hahn, "that I have succeeded!"
 
+Isn't it strange that Mr. Hahn mentions nothing about the restriction, profoundly wise besides, that Mr. Gümbel places by basing his hopes uniquely on the carbonaceous meteorites?
+
 ...
 
 ## Explanation of the Figures
