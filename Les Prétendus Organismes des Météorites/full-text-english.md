@@ -167,6 +167,8 @@ Consequently, it was necessary to address the chondrules. While going through th
 
 I wanted this description in its entirety because it corresponds reasonably, except for the points indicated, to my own observations and because it only imparts facts observed without any preconceived opinion and without any other more or less hypothetical explanation. Mr. Gümbel, a consummate mineralogist and geologist, started out with the study of a few meteorites fallen in Bavaria in order to construct generalities which find easy application everywhere.
 
+I should quote here a strange fact. Mr. Gümbel aslo studied the carbonaceous meteorites of Bokkeveld and Kaba.
+
 ...
 
 ## Explanation of the Figures
