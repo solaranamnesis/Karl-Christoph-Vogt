@@ -169,6 +169,8 @@ I wanted this description in its entirety because it corresponds reasonably, exc
 
 I should quote here a strange fact. Mr. Gümbel aslo studied the carbonaceous meteorites of Bokkeveld and Kaba. "I was hoping," he says (pg. 71), "that by means of thin sections I could perhaps discover within the carbonaceous mass a trace of organic structure. This mass displays, in the rare areas where it becomes rendered transparent, the membranous or finely granular structure that one encounters elsewhere on similar substances..." "I was not able to discover any indication of organic structure..." He repeats, while talking of the Kaba meteorite: "Also, this carbonaceous meteorite, treated with the method indicated (treatment with potassium chlorate and then with nitric acid), displays no trace of organic structure. Perhaps it will be accomplished eventually by employing the same procedure on larger masses or on other carbonaceous meteorites, the proof of the existence of ogranic beings on celestial bodies outside the Earth." (L. c. p. [_On the Stone Meteorites Found in Bavaria_] pg. 72) 
 
+In his ardor to find partisans, Mr. Hahn cited this phrase in the following manner: "Mr. Gümbel ends with a description of the Kaba meteorite: "Perhaps, however, it is still be possible to prove the existence of organic beings on celestial bodies outside of the Earth." "I hope," adds Mr. Hahn, "that I have succeeded!"
+
 ...
 
 ## Explanation of the Figures
