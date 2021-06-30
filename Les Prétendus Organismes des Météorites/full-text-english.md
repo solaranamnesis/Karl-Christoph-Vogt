@@ -173,6 +173,8 @@ In his ardor to find partisans, Mr. Hahn cited this phrase in the following mann
 
 Isn't it strange that Mr. Hahn mentions nothing about the restriction, profoundly wise besides, that Mr. Gümbel places by basing his hopes uniquely on the carbonaceous meteorites?
 
+Now I come to my observations.
+
 ...
 
 ## Explanation of the Figures
