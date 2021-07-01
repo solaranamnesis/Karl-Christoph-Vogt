@@ -175,6 +175,8 @@ Isn't it strange that Mr. Hahn mentions nothing about the restriction, profoundl
 
 Now I come to my observations.
 
+In addition to a collection of several hundred fine sections of various rocks formed over a long time, the material at my disposition was lent to me in the most obliging manner by Messrs. de Hochstetter and Brezina (a beautiful entire specimen of Knyahinya), by Mr. Daubrée (artificial peridot and enstatite formed by melting; meteorites from Vouillé and Knyahinya), by Mr. de Marignac (a dozen chondrites of diverse origins), and by Mr. Stanislas Meunier (artificial enstatite glazed). –
+
 ...
 
 ## Explanation of the Figures
