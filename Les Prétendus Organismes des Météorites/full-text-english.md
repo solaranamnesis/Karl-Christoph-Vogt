@@ -179,7 +179,7 @@ In addition to a collection of several hundred fine sections of various rocks fo
 
 The first question that I have to raise is this: Is the method of research, followed exlusively by Mr. Hahn and his friends, exempt from possible errors?
 
-Negative answer. In effect, the observable structures on living and fossil organisms are preserved even in the thinnest cuts and become quite noticable as the measure of the cut gets very sheer; – in contrast, the structures observed by Mr. Hahn are only visible, regarding the majority of cases, as he says himself, on the semi-transparent cuts and disappear when further work is performed. It was therefore necessary to find out what is supporting this fundamental difference; it was necessary to search, furthermore, if it was not possible to control the results produced by microscopic observation of the thin plates, by employing alternative methods of exploration.
+Negative answer. In effect, the observable structures on living and fossil organisms are preserved even in the thinnest cuts and become quite noticable as the measure of the cut gets very sheer; – in contrast, the structures observed by Mr. Hahn are only visible, regarding the majority of cases, as he says himself, on the semi-transparent cuts and disappear when further work is performed. It was therefore necessary to find out what is supporting this fundamental difference; it was necessary to search, furthermore, if it was not possible to control the results produced by microscopic observation of the thin sheets, by employing alternative methods of exploration.
 
 ...
 
