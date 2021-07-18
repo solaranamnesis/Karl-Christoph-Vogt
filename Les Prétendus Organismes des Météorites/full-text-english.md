@@ -181,6 +181,8 @@ The first question that I have to raise is this: Is the method of research, foll
 
 Negative answer. In effect, the observable structures on living and fossil organisms are preserved even in the thinnest cuts and become quite noticable as the measure of the cut gets very sheer; – in contrast, the structures observed by Mr. Hahn are only visible, regarding the majority of cases, as he says himself, on the semi-transparent cuts and disappear when further work is performed. It was therefore necessary to find out what is supporting this fundamental difference; it was necessary to search, furthermore, if it was not possible to control the results produced by microscopic observation of the thin sheets, by employing alternative methods of exploration.
 
+Be sure to believe that I have not neglected the straightforward inspection of thin sections and that the premier instruments of Leitz, Seibert and Krafft, Verick, and Zeiss have served me in their entire capacity.
+
 ...
 
 ## Explanation of the Figures
