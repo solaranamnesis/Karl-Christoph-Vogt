@@ -183,6 +183,8 @@ Negative answer. In effect, the observable structures on living and fossil organ
 
 Be sure to believe that I have not neglected the straightforward inspection of thin sections and that the premier instruments of Leitz, Seibert and Krafft, Verick, and Zeiss have served me in their entire capacity. I would not have mentioned this detail, absolutely insignificant, for everyone nowadays has a good microscope, if it had not been endorsed in a quite distinctive manner within a popular article the excellence of the instrument with which Mr. Hahn makes his observations.
 
+It was not necessary to go far into the examination of the cuts made in the plane of radiation in order to realize that the chondrules were composed, as Gümbel mentions, of small crystalloid columns, often simple as well as ramified, the branches departing, in the latter case, under very acute angles and then gradually dimishing in thickness from the departure point towards the periphery.
+
 ...
 
 ## Explanation of the Figures
