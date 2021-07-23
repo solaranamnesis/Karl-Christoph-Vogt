@@ -187,7 +187,7 @@ It was not necessary to go far into the examination of the cuts made along the p
 
 These small radiating columns, ramified or not, more or less dense, always display opaque encrustations, visible in the finest cuts and persisting to a large extent despite the action of acids. This encrusting and strongly adherent material fills in all the interstices of the small columns and penetrates the very frequent and often orderly transverse breaks of the small columns in a manner that mimics partition walls. These partition walls are often spaced in a manner so regular that one believes to see, upon considering a single small column, the filaments of algae. One also observes that the opaque encrusting substance is not everywhere of equal thickness; where it appears less opaque one sees roughness, small cavities, even deeper hollows that penetrate into the perfectly clear substance of the small columns, and which are filled by the opaque substance. The transparent substance of the small columns is nearly always rough, almost gnawed away, scarred by thousands of diverse smashes and yet always these cavities and guilloches of encrusted material.
 
-Messrs. Weinland and Hahn are quite insistent, both on the occasional orderly arrangement of these apparent partition walls, and on their nature as partition walls.
+Messrs. Weinland and Hahn are quite insistent, both on the occasional orderly arrangement of these apparent partition walls, and on their nature as partition walls. They are not breaks, they are partition walls; a break forms a simple line, it is "an optical phenomenon"; here, they are "bodily partition walls." 
 
 ...
 
