@@ -191,7 +191,7 @@ Messrs. Weinland and Hahn are quite insistent, both on the occasional orderly ar
 
 A second particularity upon which the designers of the chondrites insist is to rely on the fact that the small columns are truely round tubes, formed by an opaque wall and surrounding a clear substance, a filling of olivine or enstatite. According to them, the opaque encrusting substance would thus be the original skeleton of the animal, whereas the clear substance of the small columns would form the mold for the cavities, previously filled by the soft and shredded substance of the animal.
 
-We pose that in fact any transparent body, whether it is a dodecahedron or an elongated prism with rectilinear facets, will appear rounded under the microscope due to the transmitted light, where it is surrounded by a more opaque substance. It is an elementary phenomenon and which is completely accounted for by the disposition of the enveloping substance, which permits a greater amount of light to pass through the middle than at the edges, where it shows more considerable thickness.
+We pose that in fact any transparent body, whether it is a dodecahedron or an elongated prism with rectilinear facets, will appear rounded under the microscope due to the transmitted light, where it is surrounded by a more opaque substance. It is an elementary phenomenon and which is completely accounted for by the disposition of the enveloping substance, which permits a greater amount of light to pass through the middle than at the edges, where it shows more considerable thickness. Shadows gradually decreasing towards a center or line, and gradually increasing towards the edges, gives us the impression of a rounded bulge with curved surfaces.
 
 ...
 
