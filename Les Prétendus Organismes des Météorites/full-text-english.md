@@ -189,6 +189,8 @@ These small radiating columns, ramified or not, more or less dense, always displ
 
 Messrs. Weinland and Hahn are quite insistent, both on the occasional orderly arrangement of these apparent partition walls, and on their nature as partition walls. They are not breaks, they are partition walls; a break forms a simple line, it is "an optical phenomenon"; here, they are "bodily partition walls." I confess that I do not understand the difference between a break, whose two faces are slightly separated and whose gap is filled by an opaque material, and a bodily partition wall. In order to demonstrate that one comes across breaks more or less regularly distanced in crystals which simulate the filaments of algae, I give the figure of similar crystals detected in a thin section of diorite originating from the Leith River, near Edinburgh (Fig. 4). In the majority of cases the edges of these breaks correspond so exactly that one sees only a single line; in the others, more uncommon, one observes two parallel lines; the space is then filled by a clear and limpid vitreous substance. When the infilling substance is slightly opaque, one sees a bodily partition wall with a measurable thickness. I will supply the evidence further on, made through the observation of disaggregated cuts and an analysis of the pieces resulting from the action of acids, that such an effect is the real explanation of the partition walls "being bodily."
 
+A second particularity upon which the designers of the chondrites insist is to rely on the fact that the small columns are truely round tubes, formed by an opaque wall and surrounding a clear substance, a filling of olivine or enstatite. 
+
 ...
 
 ## Explanation of the Figures
