@@ -193,7 +193,7 @@ A second particularity upon which the designers of the chondrites insist is to r
 
 We pose that in fact any transparent body, whether it is a dodecahedron or an elongated prism with rectilinear facets, will appear rounded under the microscope due to the transmitted light, where it is surrounded by a more opaque substance. It is an elementary phenomenon and which is completely accounted for by the disposition of the enveloping substance, which permits a greater amount of light to pass through the middle than at the edges, where it shows more considerable thickness. Shadows gradually decreasing towards a center or line, and gradually increasing towards the edge, gives us the impression of a rounded bulge with curved surfaces. This occurs all the more readily when the facets of the edges come together under blunt angles. Yet, just as massive enstatites display angles so dull that they seem round, likewise the elongated prisms of the enstatites look rounded and completely circular when they are surrounded by a more opaque material like a sheath.
 
-To these difficulties, inherent in the nature of these objects, is added another. Inside the majority of the chondrules, the little columns are so confined and thin that it becomes physically impossible to make a cut that has a depth of only a single small column.
+To these difficulties, inherent in the nature of these objects, is added another. Inside the majority of the chondrules, the little columns are so confined and thin that it becomes physically impossible to make a cut that has a depth of only a single small column. All the cuts, even the thinnest, consequently contain quite a few superimposed layers of small columns.
 
 ...
 
