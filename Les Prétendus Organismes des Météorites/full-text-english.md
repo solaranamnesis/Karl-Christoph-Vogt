@@ -195,6 +195,8 @@ We pose that in fact any transparent body, whether it is a dodecahedron or an el
 
 To these difficulties, inherent in the nature of these objects, is added another. Inside the majority of the chondrules, the little columns are so confined and thin that it becomes physically impossible to make a cut that has a depth of only a single small column. All the cuts, even the thinnest, consequently contain quite a few superimposed layers of small columns. One can easily imagine that these superimposed bodies, transparent, although encrusted by an opaque material, and whose edges do not correspond in their layering, will necessarily produce fallacious and most of the time indecipherable shadow effects. An opaque interstice between two subjacent small columns, located within the median axis of the small column identified in the focus of the microscope lens, will impart to this small column an appearance like it was pierced by a longitudinal channel; partitions situated a little obliquely with respect to the axis of the small column, in between which are located the shadows produced by the subjacent partitions, will give to the small column the demeanor of being arrayed in a string. Even with the greatest volition in the world and despite the employment of superior instruments, all these difficulties cannot be vanquished; I would even state that the more one is trained in microscopic observation, the more one is persuaded that certitudes may not be acquired.
 
+I have assayed polarized light, whose application should never be omitted when dealing with the analysis of minerals or rocks; the results were not conclusive enough to eliminate all the doubts. I will disclose these results later in their entirety.
+
 ...
 
 ## Explanation of the Figures
