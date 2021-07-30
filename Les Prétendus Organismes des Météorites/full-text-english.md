@@ -201,6 +201,8 @@ Mr. Hahn sees the entire mass of the chondrites composed of organisms; Mr. Weinl
 
 It was therefore necessary to search for alternative methods and other comparisons.
 
+Mr. Gümbel had already indicated the pathway. He always was concerned with verifying his observations on thin sections with microchemical operations.
+
 ...
 
 ## Explanation of the Figures
