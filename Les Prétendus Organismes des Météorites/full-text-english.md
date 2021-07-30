@@ -197,6 +197,8 @@ To these difficulties, inherent in the nature of these objects, is added another
 
 I have assayed polarized light, whose application should never be omitted when dealing with the analysis of minerals or rocks; the results were not conclusive enough to eliminate all the doubts. I will disclose these results later in their entirety.
 
+Mr. Hahn sees the entire mass of the chondrites composed of organisms; Mr. Weinland sees only two-thirds of it; Mr. Rzehak (_Das Ausland_, No. 26, 1881) does not see any at all, and examining everything, I had to align myself with the view of the latter observer.
+
 ...
 
 ## Explanation of the Figures
