@@ -199,7 +199,7 @@ I have assayed polarized light, whose application should never be omitted when d
 
 Mr. Hahn sees the entire mass of the chondrites composed of organisms; Mr. Weinland sees only two-thirds of it; Mr. Rzehak (_Das Ausland_, No. 26, 1881) does not see any at all, and examining everything, I had to align myself with the view of the latter observer.
 
-It was therefore necessary to /search for alternative methods and other comparisons.
+It was therefore necessary to search for alternative methods and other comparisons.
 
 ...
 
