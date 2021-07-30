@@ -201,7 +201,7 @@ Mr. Hahn sees the entire mass of the chondrites composed of organisms; Mr. Weinl
 
 It was therefore necessary to search for alternative methods and other comparisons.
 
-Mr. Gümbel had already indicated the pathway. He always was concerned with verifying his observations on thin sections with microchemical operations. Referring to the Mauerkirchen meteorite (Nov. 20, 1768), he says (pg. 19): "After having treated the finely crushed (not pulverized) with aqua regia and caustic potash, I saw that the metallic parts and the yellowish splinters (olivine) had disappeared and that the residue consisted of white or brownish fragments which are easily distinguished under the microscope.
+Mr. Gümbel had already indicated the pathway. He always was concerned with verifying his observations on thin sections with microchemical operations. Referring to the Mauerkirchen meteorite (Nov. 20, 1768), he says (pg. 19): "After having treated the finely crushed (not pulverized) with aqua regia and caustic potash, I saw that the metallic parts and the yellowish splinters (olivine) had disappeared and that the residue consisted of white or brownish fragments which were easily distinguished under the microscope.
 
 ...
 
