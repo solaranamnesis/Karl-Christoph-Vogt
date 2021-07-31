@@ -205,7 +205,7 @@ Mr. Gümbel had already indicated the route. He always was concerned with verify
 
 I followed this method. I treated cuts, I treated shattered chondrules, not pulverized, and as it was the Knyahinya meteorite which alone provided all the forms described by Mr. Hahn, I chose this meteorite for my experiments.
 
-After having crushed the fragments into small pieces of approximately a millimeter in diameter by diameter, I consume with boiling hydrochloric acid this shot, within which a lot of chondrules were still able to be seen almost intact with their spiky surfaces of tiny crystalline points.
+After having crushed the fragments into small pieces of approximately a millimeter in diameter by diameter, I consumed with boiling hydrochloric acid this shot, within which a lot of chondrules were still able to be seen almost intact with their spiky surfaces of tiny crystalline points.
 
 ...
 
