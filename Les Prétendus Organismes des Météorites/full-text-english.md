@@ -209,7 +209,7 @@ After having crushed the fragments into small pieces of approximately a millimet
 
 Examined under a microscope, the light cloudy precipitate presents itself as an amorphous substance with extremely fine powdery granules. A few rather rare trichites, very dark and very fine, are encountered arranged into tufts in the middle of this mass. – I attribute them to scraps of the fusion crust, parts of which were still attached to the analyzed fragment. The white, heavy, and powdery precipitate, in contrast, is totally composed of tiny crystalloid pieces, the description of which I will give later.
 
-In addition to the pyrites and dissolved metals, hydrochloric acid then disjoined some extreme particles from the small columns by dissolving and decomposing an encrusting silicate probably rich in iron.
+In addition to the pyrites and dissolved metals, hydrochloric acid then disjoined some end particles from the small columns by dissolving and decomposing an encrusting silicate probably rich in iron.
 
 ...
 
