@@ -207,6 +207,8 @@ I followed this method. I treated cuts, I treated crushed chondrules, not pulver
 
 After having crushed the fragments into small pieces of approximately a millimeter in diameter by diameter, I consumed with boiling hydrochloric acid this shot, within which a lot of chondrules were still able to be seen almost intact with their spiky surfaces of tiny crystalline points. There is a moderately tumultuous outburst of sulfurated hydrogen, proof of the presence of pyrites; the dissolved iron colors the acid greenish yellow. I obtained a lightweight cloudy, almost gelatinous, precipitate that deposed very slowly, while also small brillant and colorless particulates rapidly settled to the bottom and formed a white powder which collected the remaining grains entirely at bottom of the test tube.
 
+Examined under a microscope, the light cloudy precipitate presents itself as an amorphous substance with extremely fine powdery granules.
+
 ...
 
 ## Explanation of the Figures
