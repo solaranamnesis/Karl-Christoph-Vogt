@@ -215,7 +215,7 @@ I attack with boiling aqua regia. A tumultuous release of nitrous acid; the acid
 
 I examine this powdery precipitate under the microscope after having prepared it with balm.
 
-I immediately see that on the majority of the scraps the opaque encrusting material has not completely disappeared.
+I immediately see that on the majority of the scraps the opaque encrusting material has not completely disappeared. There must therefore be a substance, probably a silicate, containing iron or a different metal, which is insoluble in the strongest acids.
 
 ...
 
