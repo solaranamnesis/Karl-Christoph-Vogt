@@ -211,6 +211,8 @@ Examined under a microscope, the light cloudy precipitate presents itself as an 
 
 In addition to the pyrites and dissolved metals, hydrochloric acid then disjoined some end particles from the small columns by dissolving and decomposing an encrusting silicate probably rich in iron.
 
+I attack with boiling aqua regia. A tumultuous release of nitrous acid; the acid is again colored yellow from iron. The aqua regia thus dissolved another ferric silicate more resistant to the attack. More cloudy precipitate; yet the powdery precipitate increased. The remnant grains are a dirty gray, spiky with asperities.
+
 ...
 
 ## Explanation of the Figures
