@@ -217,6 +217,8 @@ I examine this powdery precipitate under the microscope after having prepared it
 
 I immediately see that on the majority of the scraps the opaque encrusting material has not completely disappeared. There must therefore be a substance, probably a silicate, containing iron or a different metal, which is insoluble in the strongest acids. However, the encrusted material has widely diminished and I find a quantity of small pieces that are entirely cleansed and transparent like the aqua, while the others display a greater opacity.
 
+The isolated and transparent little pieces are prismatic, elongated, with terminal planes severed vertically in some instances; although more often than not they displayed at their extremities facets upon which were undoubtedly even smaller articulated pieces (Fig. 5 and 12-15).
+
 ...
 
 ## Explanation of the Figures
