@@ -221,6 +221,8 @@ The isolated and transparent little pieces are prismatic, elongated, with termin
 
 I reserve the description of the more composite morcels with a reticulated and fibrous structure, similar to those of the chondrules, for later.
 
+I divide the rest of the material, treated successively by the two acids indicated, into two portions and I treat one of these portions with caustic potash, while I attack the other with concentrated sulfuric acid.
+
 ...
 
 ## Explanation of the Figures
