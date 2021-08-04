@@ -223,6 +223,8 @@ I reserve the description of the more composite morcels with a reticulated and f
 
 I divide the rest of the material, treated successively by the two acids indicated, into two portions and I treat one of these portions with caustic potash, while I attack the other with concentrated sulfuric acid.
 
+Concentrated sulfuric acid has no more action; caustic potash, in contrast, decomposes a portion even more.
+
 ...
 
 ## Explanation of the Figures
