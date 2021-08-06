@@ -255,6 +255,8 @@ I give two figures of these rods, drawn under a magnification of 500 diameters (
 
 If the crystalline forms, similar to those produced by Mr. Daubrée by means of molten lherzolite, are relatively rare in meteorites, it should not however be concluded that they are completely absent. I count, as a matter of fact, among the crossovers of the ramified chondritic structure with that of the lherzolite the following forms, all observed in the Knyahinya meteorite:
 
+1\. Chondrules with a combined structure, where in the middle of an almost pulverized mass very elongated articulated small columns are made out, are generally arranged like the spokes of a wheel. I observed one of the chondrules that presented on one of these halves six rays very regularly spaced, and on the other half there was a whole group of columnar crystals, partly branched, very tight and while all these rays departed from an eccentric center, although not too close to the edge, one saw near this center a crystalline rod of considerable length, which traversed the whole chondrule from one end to the other. On the side of the large chondrule there was a small one, formed of small columns extremely fine like lines, but interwoven with more considerable radiating small columns.
+
 ...
 
 ## Explanation of the Figures
