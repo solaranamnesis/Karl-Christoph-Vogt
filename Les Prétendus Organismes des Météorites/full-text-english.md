@@ -239,6 +239,8 @@ I return to the Knyahinya meteorite treated with acids or worn until reduced to 
 
 The crystal composition is more manifest in other fragments with a lamellar structure, as I have featured in Fig. 15. The interstices are replete with the encrusting material which enters the longitudinal and transverse fissures, the cavities and the pores of the clear pieces which seem to possess a pronounced lamellar structure, as if thin and long little planks were spliced together, often presenting their narrow side. These fragments as a whole have the same grayish color as the preceding ones; they exhibit no changes under the cross polars; but their bevelled or tiered extremities, which protrude from the encrusting material, shine with the most vivid colors.
 
+Lastly, through the action of the acids there remain non-decomposed globular chondrules, bristling with asperities, the size pin heads, which I have prepared with balm in a cell with one millimeter thick lining. The body of these chondrules is, needless to say, absolutely opaque under the microscope, while in direct light they present a light gray color. But the asperities, with which they are bristling, are in general transparent, carved into sharp angles and which through cross polars appear as colored patches.
+
 ...
 
 ## Explanation of the Figures
