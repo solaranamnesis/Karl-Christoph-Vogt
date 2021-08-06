@@ -243,6 +243,8 @@ Lastly, through the action of the acids there remain undecomposed globular chond
 
 I am required to report these details, tedious perhaps, because they illuminate, it seems to me, the question in a positive manner. Thanks to the analysis through acids and attrition, I can now say, without fear of serious contradiction, that the Knyahinya pieces that I have examined and which are authentic samples, on which Mr. Hahn has identified "hundreds of organic structures," only contain, besides the metallic splinters and the relatively pulverized parts, crystals, nothing but crystals, variously developed in size, arranged, agglomerated, agglutinated in different ways. I then assert with certainty, that all the so-called organic structures are produced by crystals belonging to at least one specie, perhaps even several mineral species with single and double refraction.
 
+One could raise the objection that the organisms were destroyed by the acids and that the crystals alone resisted. It is easy to rule out this objection for the following reasons: 1\. The fragments with claimed organic structure and almost all the chondrules have resisted acids, only revealing their crystalline structure through the rarefaction of the encrusting substance; 2\. The mechanical action of polishing down to the lowest limit has produced the same effects.
+
 ...
 
 ## Explanation of the Figures
