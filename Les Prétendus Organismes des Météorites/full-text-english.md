@@ -245,6 +245,8 @@ I am required to report these details, tedious perhaps, because they illuminate,
 
 One could raise the objection that the organisms were destroyed by the acids and that the crystals alone resisted. It is easy to rule out this objection for the following reasons: 1\. The fragments with claimed organic structure and almost all the chondrules have resisted acids, only revealing their crystalline structure through the rarefaction of the encrusting substance; 2\. The mechanical action of polishing down to the lowest limit has produced the same effects.
 
+Arriving at this point in my research, I necessarily has to ask myself if analogous or identical forms to those of the chondrules could be demonstrated, either through artificial productions or within natural rocks. As for the former, I could only apply to Messrs. Daubrée and Stanislas Meunier, these two scholars being the only ones who have been occupied with experiments pertaining to the genesis of meteorites. I must thank these gentlemen who have placed at my disposal, with the greatest amiability, a considerable amount of material.
+
 ...
 
 ## Explanation of the Figures
