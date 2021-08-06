@@ -257,6 +257,8 @@ If the crystalline forms, similar to those produced by Mr. Daubrée by means of 
 
 1\. Chondrules with a combined structure, where in the middle of an almost pulverized mass very elongated articulated small columns are made out, are generally arranged like the spokes of a wheel. I observed one of the chondrules that presented on one of these halves six rays very regularly spaced, and on the other half there was a whole group of columnar crystals, partly branched, very tight and while all these rays departed from an eccentric center, although not too close to the edge, one saw near this center a crystalline rod of considerable length, which traversed the whole chondrule from one end to the other. On the side of the large chondrule there was a small one, formed of small columns extremely fine like lines, but interwoven with more considerable radiating small columns.
 
+2\. Forms, rather similar to feathers. From a central axis, on which is seen articulations, depart from one side completely transparent rays, like the axis itself, disposed at irregular intervals, yet all parallel and forming an angle of approximately 40 degrees with the axis. The intervals between these secondary axes are filled with crystalline fibers, arranged at right angles, like the barbs of a ramified feather. On the other side, these barbs depart from the axis itself and one sees some clearer spaces with no fixed direction. The barbs present themselves in the same manner as the fibrous forms of the artificial enstatite.
+
 ...
 
 ## Explanation of the Figures
