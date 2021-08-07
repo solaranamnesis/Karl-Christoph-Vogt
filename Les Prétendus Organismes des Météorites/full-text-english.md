@@ -271,6 +271,8 @@ The glazes at my disposal were preparations, covered with a thin glass slide. Bu
 
 I think that the demonstration is as complete as possible. The chondrules of Knyahinya, considered as animals by Mr. Hahn, only freed from as much as possible of the encrusting material, ended up being, as Mr. Meunier said, composed of exactly the same elements as the glaze of artificial enstatite.
 
+It is therefore achieved in the debate that the most significant groups of crystals, joined by an encrusting material, which fills in the interstices and breaks in such a manner that produces bodily partition walls and which are encountered in profusion within the Knyahinya meteorite as in the other chondrites, were artificially reproduced by Mr. Daubrée, while the radiating, ramified, and articulated forms of the chondrites were procured by Mr. Meunier.
+
 ...
 
 ## Explanation of the Figures
