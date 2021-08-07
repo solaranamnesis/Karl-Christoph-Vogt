@@ -317,7 +317,13 @@ I believe, in summary, that the present dissertation justifies the following pro
 
 5\. controlled observations clearly demonstrate that all the chondrules are composed of transparent, crystalline pieces, grouped in different ways, but most often in small columns or in ramified aigrettes and radiating from a center. The interstices, breaks and separations of these grouped pieces are replete with an opaque encrusting material, largely resistant to the action of acids, simulating "bodily" partitions and other peculiarities attributed to an organic structure;
 
-...
+6\. The aigrettes composing the chondrules are identical, as regards their form and the grouping of the crystalline pieces which compose them, with the artificial enstatite aigrettes obtained by Mr. Stanislas Meunier in his experiments; as also the pellets of glaze, formed in these same experiments, are analogous, regarding the whole grouping, to the ramified and articulated chondrules;
+
+7\. Certain chondrules with fine striations point to a rectilinear columnar grouping, identical with the structure of terrestrial enstatites (Schillerfels of Baste in the Harz).
+
+8\. The majority of chondrules contain a quantity of groups of larger crystals, identical, regarding their grouping, in their form and structure with the groups of enstatite crystals obtained by Mr. Daubrée by the fusion of peridot with soft iron;
+
+9\. Apart from the pulverized masses, metallic substances, and non-crystallized encrusting material, ordinary meteorites are composed only of crystalline elements, assembled in chondrules, as the disintegration through wear or acids demonstrates.
 
 ## Explanation of the Figures
 
