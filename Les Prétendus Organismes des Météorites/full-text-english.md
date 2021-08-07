@@ -10,7 +10,7 @@
 
 ### 1882
 
-Towards the end of 1880 there appeared in Germany a work in _quarto_, which could not fail to arouse one's attention. It was entitled: _The Meteorite (Chondrite) and its Organisms_, presented and described by Dr. Otto Hahn. Thirty-two tables with a hundred and forty-two photographed pictures. Tübingen, 1880. Laupp, publisher.
+Toward the end of 1880 there appeared in Germany a work in _quarto_, which could not fail to arouse one's attention. It was entitled: _The Meteorite (Chondrite) and its Organisms_, presented and described by Dr. Otto Hahn. Thirty-two tables with a hundred and forty-two photographed pictures. Tübingen, 1880. Laupp, publisher.
 
 I summarize, by literally translating the author's words, the main results he lays out.
 
