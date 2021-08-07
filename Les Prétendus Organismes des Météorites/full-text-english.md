@@ -313,6 +313,10 @@ I believe, in summary, that the present dissertation justifies the following pro
 
 3\. The structures observed are either due to the presence of an opaque encrusting material or the result of optical illusions, caused by an incomplete method of microscopic research;
 
+4\. The microscopic observation of thin slides, obtained by polishing, pushed only to a certain limit, is insufficient to completely render the structure of chondrules. This research must be controlled by observations made on slides reduced to the final limit, as well as by the examination of chondrules dissociated by means of acids and caustic potash;
+
+5\. controlled observations clearly demonstrate that all the chondrules are composed of transparent, crystalline pieces, grouped in different ways, but most often in small columns or in ramified aigrettes and radiating from a center. The interstices, breaks and separations of these grouped pieces are replete with an opaque encrusting material, largely resistant to the action of acids, simulating "bodily" partitions and other peculiarities attributed to an organic structure;
+
 ...
 
 ## Explanation of the Figures
