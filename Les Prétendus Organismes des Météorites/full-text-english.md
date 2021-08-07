@@ -309,7 +309,7 @@ I believe, in summary, that the present dissertation justifies the following pro
 
 1\. The claimed organisms of the meteorites (chondrites) do not exist, and what has been described and figured as such is engendered through absolutely inorganic crystalline conformations;
 
-2\. None of these claimed organisms have the microscopic structure proper to the true organisms with which they have been associated; in particular, the claimed sponges do not show the structure of true living or fossil sponges, nor the so-called corals that of polypiers of Anthozoa, nor the imaginary crinoids that of recognized Crinoids;
+2\. None of these claimed organisms have the microscopic structure proper to the true organisms with which they have been associated; in particular, the claimed sponges do not show the structure of true living or fossil sponges, nor the so-called corals that of polypiers of Anthozoa, nor the imaginary crinoids that of recognized crinoids;
 
 3\. The structures observed are either due to the presence of an opaque encrusting material or the result of optical illusions, caused by an incomplete method of microscopic research;
 
