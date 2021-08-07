@@ -265,6 +265,8 @@ Whatever the case may be, these facts clearly prove that even the strangest form
 
 However, the most complete resemblance with the articulated and ramified chondrules is offered by the artificial enstatite glaze, produced by Mr. Stanislas Meunier in the experiments which he set out in the records of proceedings (meeting of February 23, 1880) and on which he again called attention to in a recent communication with the Academy of Sciences (meeting of November 7, 1881).
 
+Mr. Meunier insisted on the resemblance of this glaze to chondrules; Mr. Rzehak restated this resemblance; Mr. Hahn and his friends turned a deaf ear. Mr. Meunier was perhaps at fault in not supporting his assertions with figures; thanks to his helpfulness, I am able to make up for it. I give drawings made under a magnification of 500 diameters (Fig. 19-21) and I think that no one will be able to contest, I am not saying the resemblance, but the identity with the figures of fragments of chondrules treated with acids.
+
 ...
 
 ## Explanation of the Figures
