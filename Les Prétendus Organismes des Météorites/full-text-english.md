@@ -305,6 +305,8 @@ I need not belabor any longer on these observations. They prove, I think, in a p
 
 In a second dissertation we will prove, my colleague Mr. Denis Monnier and I, through experiments without replica, that one can freely produce the essential organic forms, such as tubes, tubes with partitions, cells with poric channels, etc., by employing, for this fabrication of determined forms, nothing but absolutely inorganic substances, such as metallic salts, silicates, etc.. We will prove that the form of these products is constant in this sense, that certain reagents produce cylindrical tubes, hollow inside, replete with granular deposits in the center of the tube, with membranous and transverse partitions, while other reagents produce cells with walls, with rounded poric channels, straight or flexible, radiating from the center and opening, on the periphery of the cell, with gaping orifices. We will demonstrate by these experiments that there does not exist a general character of form, which can be invoked as distinctive between organic and inorganic products, and we will expound in detail, with support by photographed figures, the results to which we have arrived at and which we gave notice to the Science Section of the Geneva National Institute in its meeting on December 13, 1881.
 
+I believe, in summary, that the present dissertation justifies the following propositions:
+
 ...
 
 ## Explanation of the Figures
