@@ -301,6 +301,8 @@ Permit me a trivial comparison, but nevertheless quite fair. Grab a broom formed
 
 This approach to viewing is further confirmed by the aspect of the artificial enstatite glaze, as it comes out of the tube in which it was formed. Mr. Stanislas Meunier was kind enough to impart to me some of these globular flakes, preserved in a small test tube. They are small, very light, very brittle spheres, bristling with little spikes and with size of approximately one to two millimeters. They present under the magnifying glass a radiant structure. Examined under the microscope, after having mounted them in a cell with walls thick enough so that the coverslip does not touch or crush them, one sees the ramified aigrettes parting in all directions as in the chondrules and raising or lowering the focus, optical sections can be obtained which, except for the much larger interstices between the small columns, rather resemble real sections of chondrules.
 
+I need not belabor any longer on these observations. They prove, I think, in a peremptory manner, that all the quite strange conclusions, which Mr. Hahn arrived at, rest on erroneous assessments, engendered by incomplete research, made without controls, without serious comparison with real organisms, alive or fossil and without criticism relying on the employment of different methods of exploration. All this alleged animal creation contained in the chondrules of meteorites must therefore be relegated to the domain of involuntary errors, of which the history of science pullulates.
+
 ...
 
 ## Explanation of the Figures
