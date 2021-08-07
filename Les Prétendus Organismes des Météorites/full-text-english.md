@@ -299,6 +299,8 @@ In order to account for the quite diverse appearances under which the chondrules
 
 Permit me a trivial comparison, but nevertheless quite fair. Grab a broom formed of ramified birch branches, such as is used in many countries, and treat it in a manner analogous to that in which chondrules are treated by making thin tranches. By slicing this broom along different longitudinal, transverse, and oblique planes, near the extremity of the branches at the periphery or near the press-fitting, one will be able to obtain images, crude it is true, but imitating too well the _Urania_, corals, and crinoids, of which they want to gratify us with at the present time.
 
+This approach to viewing is further confirmed by the aspect of the artificial enstatite glaze, as it comes out of the tube in which it was formed. Mr. Stanislas Meunier was kind enough to impart to me some of these globular flakes, preserved in a small test tube. They are small, very light, very brittle spheres, bristling with little spikes and with size of approximately one to two millimeters. They present under the magnifying glass a radiant structure. Examined under the microscope, after having mounted them in a cell with walls thick enough so that the coverslip does not touch or crush them, one sees the ramified aigrettes parting in all directions as in the chondrules and raising or lowering the focus, optical sections can be obtained which, except for the much larger interstices between the small columns, rather resemble real sections of chondrules.
+
 ...
 
 ## Explanation of the Figures
