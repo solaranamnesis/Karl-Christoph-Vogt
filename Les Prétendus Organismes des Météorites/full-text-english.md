@@ -263,6 +263,8 @@ If the crystalline forms, similar to those produced by Mr. Daubrée by means of 
 
 Whatever the case may be, these facts clearly prove that even the strangest forms of enstatite engendered via the fusion of lherzolite are intimately connected with the constitution of certain meteorite chondrules; that there are gradual crossovers, between these different forms, under which the crystals have developed and grouped and that between the irregular assemblages of large crystals the columnar configuration and finally those dendritic or fibrillated, we cannot make a decision to adjudicate the differences.
 
+However, the most complete resemblance with the articulated and ramified chondrules is offered by the frost of artificial enstatite, produced by Mr. Stanislas Meunier in the experiments which he set out in the records of proceedings (meeting of February 23, 1880) and on which he again called attention to in a recent communication with the Academy of Sciences (meeting of November 7, 1881).
+
 ...
 
 ## Explanation of the Figures
