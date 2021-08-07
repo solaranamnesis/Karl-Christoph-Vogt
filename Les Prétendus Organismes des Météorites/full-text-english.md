@@ -269,6 +269,8 @@ Mr. Meunier insisted on the resemblance of this glaze to chondrules; Mr. Rzehak 
 
 The glazes at my disposal were preparations, covered with a thin glass slide. But their distribution over varying degrees/leves already shows that the small columns have to radiate in all directions and form clumps of flakes. Mr. Meunier informs me that, in effect, the glazes emerge in this form from the tube in which they were constitued; but these flakes are so delicate that the pressure of the coverslip is sufficient to flatten them completely. I recently received a small tube filled with glaze, just as it came out of the experiment, and I was able to convince myself that it contains small globular flakes, composed of aigrettes radiating in all directions.
 
+I think that the demonstration is as complete as possible. The chondrules of Knyahinya, considered as animals by Mr. Hahn, only freed from as much as possible of the encrusting material, ended up being, as Mr. Meunier said, composed of exactly the same elements as the glaze of artificial enstatite.
+
 ...
 
 ## Explanation of the Figures
