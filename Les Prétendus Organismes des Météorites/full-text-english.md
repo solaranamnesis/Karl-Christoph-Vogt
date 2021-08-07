@@ -273,6 +273,8 @@ I think that the demonstration is as complete as possible. The chondrules of Kny
 
 It is therefore achieved in the debate that the most significant groups of crystals, joined by an encrusting material, which fills in the interstices and breaks in such a manner that produces bodily partition walls and which are encountered in profusion within the Knyahinya meteorite as in the other chondrites, were artificially reproduced by Mr. Daubrée, while the radiating, ramified, and articulated forms of the chondrites were procured by Mr. Meunier.
 
+The second question that presented itself was this: Does one find forms within terrestrial rocks similar to those encountered in the meteorites?
+
 ...
 
 ## Explanation of the Figures
