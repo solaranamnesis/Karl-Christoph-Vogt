@@ -291,6 +291,8 @@ We find in this reply from Mr. Hahn a very characteristic admission. "The enstat
 
 "All is life! A felt of organisms, nothing else," exclaimed Mr. Hahn in his work, and here, in his reply, we literally drop from the sky an enstatite mineral within the Bishopswille meteorite!
 
+We have demonstrated the transitions that lead to the "hundreds of structures" of Mr. Hahn's so-called organic enstatite. From the forms of enstatite and bronzite, as they are ordinarily found in rocks, gradual modifications lead to the simple columnar structure, ramified, radiating and divided into partitions. "Enstatite and bronzite," said Rosenbusch (_Microscopic Physiography of Important Minerals in Petrography_. Stuttgardt, 1873, p. 253), "are hardly ever seen in the state of crystals, but in the form of crystalline grains with irregular contours, which allow one to recognize a very tight striation... The surface of the cuts strongly inclined on the principal cleavage plane does not show itself in the same finely striated manner, but harsh in the form of steps. Transverse separation planes and breaks are not rare."
+
 ...
 
 ## Explanation of the Figures
