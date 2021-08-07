@@ -33,8 +33,8 @@ Hahn therefore believes that he has provided "incontestable proof that the chond
 "These forms are not mineral forms," says Mr. Hahn with absolute certainty. But knowing very well that similar such assertions are rarely accepted by the scientific world, without palpable proofs, he seeks to give them by grouping them into two categories, stating positive proofs and negative proofs.
 
 "In order to prove that a plant or animal organism is present, I consider it necessary to prove:  
-1. a determinate form, (I do not know how to translate the term used several times by Mr. Hahn, "geschlossene Form"; the literal translation, "closed form" has no meaning)  
-2. a form that repeats,  
+1. a _determinate_ form, (I do not know how to translate the term used several times by Mr. Hahn, "geschlossene Form"; the literal translation, "closed form" has no meaning)  
+2. a form _that repeats_,  
 3. one which repeats itself in degrees of development,  
 4. structure, namely cells or vessels,  
 5. resemblance to known forms."  
@@ -49,7 +49,7 @@ The structure that Mr. Hahn invokes as the fourth condition is without a doubt p
 
 All that remains of the five conditions posed by Mr. Hahn is that last, the similarity with known forms. But here again the greatest uncertainties can take place. Are these the exterior forms? Are these the details of the structure of the forms? We mention, in another essay, a host of cases where prominent mineral conformations, produced artificially or by nature, mimic in a perfect manner organic forms and we have, on the other hand, in the corals, in the intracellular crystals of plants, in the otoliths of animals, a quantity of examples of mineral forms produced by organisms.
 
-We must therefore address the forms and special comparative structures. We must push the comparison to the most minor details in appearance when we want to prove that this object which we have before our eyes is a sponge, a coral, or a crinoid. We leave aside, for the moment, the so-called negative proofs by which the author wants to demonstrate to us that the objects displayed by him cannot be mineral forms – they are of about the same value as his positive proofs. We address the special forms, which by their resemblance to known forms and by their identical structure have to provide incontestable proof that the chondrites are formed by organisms related to those of the Earth.
+_We must therefore address the forms and special comparative structures._ We must push the comparison to the most minor details in appearance when we want to prove that this object which we have before our eyes is a sponge, a coral, or a crinoid. We leave aside, for the moment, the so-called negative proofs by which the author wants to demonstrate to us that the objects displayed by him cannot be mineral forms – they are of about the same value as his positive proofs. We address the special forms, which by their resemblance to known forms and by their identical structure have to provide incontestable proof that the chondrites are formed by organisms related to those of the Earth.
 
 We sequentially give a review on these claimed organisms by enumerating, with the same terms of the work, the aspects that the author attributes to different organisms which he believes to have recognized. 
 
