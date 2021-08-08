@@ -14,21 +14,21 @@ Toward the end of 1880 there appeared in Germany a work in _quarto_, which could
 
 I summarize, by literally translating the author's words, the main results he lays out.
 
-"The chondrites, an olivine-feldspar (enstatite) rock, consist of an animal world, they are not part of a sedimentary rock layer nor a conglomerate, but a felt of animals, a fabric whose meshes were all once living beings and life of the lowest kind, the beginnings of creation." (p. 3.)
+"The chondrites, an olivine-feldspar (enstatite) rock, consist of an animal world, they are not part of a sedimentary rock layer nor a conglomerate, but a felt of animals, a fabric whose meshes were all once living beings and life of the lowest kind, the beginnings of creation." (p. 3)
 
-"As one examines the tables of this work, it immediately becomes clear that these are not mineral forms, but organic ones; that we have before us the images of life, images of life of the lowest order, a creation which in greater part finds some of its closest relatives here on Earth — regarding the corals and crinoids, this is determined with absolute certainty; however, the sponges have only a little similarity with those forms of the terrestrial genera." (p. 7.)
+"As one examines the tables of this work, it immediately becomes clear that these are not mineral forms, but organic ones; that we have before us the images of life, images of life of the lowest order, a creation which in greater part finds some of its closest relatives here on Earth — regarding the corals and crinoids, this is determined with absolute certainty; however, the sponges have only a little similarity with those forms of the terrestrial genera." (p. 7)
 
-"Anyone who even superficially surveys the forms will soon find that they provide an actual historical development. All the transitions from the sponge to the coral, from the coral to the crinoid are present, so that it becomes doubtful if one should assign new species to these transitions." (p. 3.)
+"Anyone who even superficially surveys the forms will soon find that they provide an actual historical development. All the transitions from the sponge to the coral, from the coral to the crinoid are present, so that it becomes doubtful if one should assign new species to these transitions." (p. 3)
 
-"The investigations up till now, in the whole field, with the exception of [Karl Wilhelm von] Gümbel's work in the Munich Academy, are of little use, both regarding the accuracy of their observations and even more the interpretations based upon those observations, i.e. on unproven hypotheses and weak assumptions — not suitable for scientific findings as such." (p. 7.)
+"The investigations up till now, in the whole field, with the exception of [Karl Wilhelm von] Gümbel's work in the Munich Academy, are of little use, both regarding the accuracy of their observations and even more the interpretations based upon those observations, i.e. on unproven hypotheses and weak assumptions — not suitable for scientific findings as such." (p. 7)
 
-Hahn therefore believes that he has provided "incontestable proof that the chondrites are the remains of animals that lived in water, that the entire meteorite is formed only of the remains of sponges, corals, and crinoids, metamorphosed by petrification into enstatite. It is true, he says, that there are small rare places where there are real crystals, but these crystals are so disposed that they cannot have any influence on the value of my actual proofs." (p. 21.)
+Hahn therefore believes that he has provided "incontestable proof that the chondrites are the remains of animals that lived in water, that the entire meteorite is formed only of the remains of sponges, corals, and crinoids, metamorphosed by petrification into enstatite. It is true, he says, that there are small rare places where there are real crystals, but these crystals are so disposed that they cannot have any influence on the value of my actual proofs." (p. 21)
 
 "When I said that the chondrite is nothing but an animal-fabric, an animal-felt, a qualification must be sustained."
 
 "There are, however, very small, sharply outlined places in this animal-bone stone, which could probably (but not necessarily) be from the beginning rocks. These are slate-blue, uncommon inclusions with 3-5 mm. diameters _lacking definite recurring forms_, which include distinct crystals in their grayish mass, these are on average either squares or rhombuses, at other times it includes hexagons. This mineral can be either augite or olivine. It does not knock on the fact, _that in the olivine strata formations exist and that these are the cause of the construction of the planet bodies, their self-constructed development and complex composition_."
 
-"In all cases, however, the ratio in the chondritic rock is the opposite as that in the sedimentary layers of Earth. In the latter the organisms are stored and the rock strata enclose them; in the first there are only organisms and the rock strata are masses of such." (p. 35.)
+"In all cases, however, the ratio in the chondritic rock is the opposite as that in the sedimentary layers of Earth. In the latter the organisms are stored and the rock strata enclose them; in the first there are only organisms and the rock strata are masses of such." (p. 35)
 
 "These forms are not mineral forms," says Mr. Hahn with absolute certainty. But knowing very well that similar such assertions are rarely accepted by the scientific world, without palpable proofs, he seeks to give them by grouping them into two categories, stating positive proofs and negative proofs.
 
@@ -39,7 +39,7 @@ Hahn therefore believes that he has provided "incontestable proof that the chond
 4. structure, namely cells or vessels,  
 5. resemblance to known forms."  
 
-"If these requirements are valid, it remains only to decide whether plant or animal? Now ask yourself, do my forms fulfill these requirements?" (p. 20.)
+"If these requirements are valid, it remains only to decide whether plant or animal? Now ask yourself, do my forms fulfill these requirements?" (p. 20)
 
 Needless to say, the response is affirmative.
 
@@ -59,17 +59,17 @@ We sequentially give a review on these claimed organisms by enumerating, with th
 
 "Round, lobed bodies with an obvious place of growth." – "Folds caused by contraction." – "Circumvented spiral." – "The structure consists of an outer membrane enclosing lamellar layers." – "Blue color." – "Obvious stratification. One might attempt to place the form among the corals if the outer form did not exist." – "We believe to see the indication of a mouth opening."
 
-"After all this, I think _Urania_ is a sessile sponge that contracts in a spiral form, absorbing and expelling water like our living sponges." (p. 23 and 24.)
+"After all this, I think _Urania_ is a sessile sponge that contracts in a spiral form, absorbing and expelling water like our living sponges." (pp. 23 and 24)
 
 These are the structural details that must convert us to the opinion of Mr. Hahn. The _Urania_ fill, according to him, three twentieths of the total mass of the stony meteorites; they are displayed on six tables comprising thirty-one figures.
 
 In a previous work by the same author, _Primordial Cell_, _Urania guilielmi_, dedicated to Emperor William [I], was represented as a plant with rounded leaves, wrapped up in its young age and equipped with capsules carrying spores. In passing through the present work, _Urania_ lost these capsules with their spores; it became a sponge. It is true that we are not allowed to learn of the point causing this change of place, so considerable, to occur; the author does not say a word about the reasons which obliged him to change his opinion. What aspects of this supposed organism were lost or gained to be transported from one kingdom to another? An inopportune question that the author does not answer.
 
-"2\. Sponges with spicules." (Table 7.)
+"2\. Sponges with spicules." (Table 7)
 
-"I place Figure 1 among the _Astrospongia_. The spicules are regularly crossed. Figure 6 is an irregular spicule framework with a weakly indicated cavity." (p. 24.)
+"I place Figure 1 among the _Astrospongia_. The spicules are regularly crossed. Figure 6 is an irregular spicule framework with a weakly indicated cavity." (p. 24)
 
-The supposed spicules resemble, mistakenly, linear crystals dispersed in a homogeneous mass, such as seen in the initial coming of lava. In a few places we see a slightly marked tendency towards a stellar arrangement, very common in crystals, unusual in the spicules of sponges, whose forms are known to be quite different (1).
+The supposed spicules resemble, mistakenly, linear crystals dispersed in a homogeneous mass, such as seen in the initial coming of lava. In a few places we see a slightly marked tendency towards a stellar arrangement, very common in crystals, unusual in the spicules of sponges, whose forms are known to be quite different.
 
 The author could not have compared his _Urania_ and astro-sponges with living and fossil sponges; he could not have studied the structure of the latter, for it would be impossible with this acquired knowledge to convince connoisseurs, as the notions and figures given by him have little rapport with the microscopic structure and nature of sponges. Mr. Hahn must be entirely ignorant of the fine research of Mr. Zittel on fossil sponges. (_Memoirs of the Munich Academy_, Vol. 12 and 13; _Handbook of Paleontology_, Vol. 1), because with this knowledge he could not have presented to us, as obvious sponges, cross sections with rounded contours surrounded by a membrane [sic!] possessing a structure or fine striations or lamella, equally unknown in living and fossil sponges. We know, it is true, of a quantity of fossil sponges where the layout of the channels displays a radiating arrangement, already visible to the naked eye or the magnifying glass (_Aulocopium_, the Ventriculitides); but in all these sponges the spicules, being either loose or forming a very regular reticulated skeletal mesh, are always recognizable in the magnifications used by Mr. Hahn. In the claimed sponges of the meteorites there does not exist any trace whatsoever of this characteristic skeleton. We also know from Mr. Zittel's research the conditions under which, by the pseudomorphosis of siliceous sponges in limestone and that of calcareous sponges in silica, the inner structure may be entirely or partly lost; but in these cases the indication of the channels equally disappears and there remain only amorphous masses without apparent structure, formerly called "petrosponges" but which have been entirely removed from this classification ever since Mr. Zittel made known their true primitive structure.
 
@@ -85,7 +85,7 @@ Conclusions: The claimed sponges of the meteorites have neither the form nor the
 
 In other figures: "Obvious lamellar structure."
 
-In others: "Tubular corals obvious. In the original, one can clearly distinguish: glassy like intermediate masses, black tube walls, yellow tubular filling material, occasionally the latter is also black. This form occurs a hundredfold in all the chondrites." (pp. 25 and 26.)
+In others: "Tubular corals obvious. In the original, one can clearly distinguish: glassy like intermediate masses, black tube walls, yellow tubular filling material, occasionally the latter is also black. This form occurs a hundredfold in all the chondrites." (pp. 25 and 26)
 
 Corals constitute, according to the author, one twentieth of the total mass.
 
