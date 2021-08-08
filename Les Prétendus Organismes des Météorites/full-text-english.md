@@ -22,7 +22,7 @@ I summarize, by literally translating the author's words, the main results he la
 
 "The investigations up till now, in the whole field, with the exception of [Karl Wilhelm von] Gümbel's work in the Munich Academy, are of little use, both regarding the accuracy of their observations and even more the interpretations based upon those observations, i.e. on unproven hypotheses and weak assumptions — not suitable for scientific findings as such." (p. 7)
 
-Hahn therefore believes that he has provided "incontestable proof that the chondrites are the remains of animals that lived in water, that the entire meteorite is formed only of the remains of sponges, corals, and crinoids, metamorphosed by petrification into enstatite. It is true, he says, that there are small rare places where there are real crystals, but these crystals are so disposed that they cannot have any influence on the value of my actual proofs." (p. 21)
+Hahn therefore believes that he has provided "incontestable proof that the chondrites are the remains of animals that lived in water, that the entire meteorite is formed only of the remains of sponges, corals, and crinoids, metamorphosed by petrification into enstatite. It is true that there are small rare places where there are real crystals, but these crystals are so disposed that they cannot have any influence on the value of my actual proofs." (p. 21)
 
 "When I said that the chondrite is nothing but an animal-fabric, an animal-felt, a qualification must be sustained."
 
